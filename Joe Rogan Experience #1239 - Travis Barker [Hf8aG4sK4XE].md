@@ -1,0 +1,3277 @@
+# Joe Rogan Experience #1239 - Travis Barker
+# https://www.youtube.com/watch?v=Hf8aG4sK4XE&list=PLk1Sqn_f33KuWf3tW9BBe_4TP7x8l0m3T&index=1379
+# video_id: Hf8aG4sK4XE
+
+[00:01] let's do it for one boom hello Travis
+[00:07] what's going on thanks man thanks for
+[00:08] doing this we [ __ ] stuff to be here it's
+[00:10] cool to have you hey so I wanted to talk
+[00:13] about what we're talking about right
+[00:14] before we start I've always watched you
+[00:15] play drums and I'm like how the [ __ ]
+[00:17] does that guy's arms not fall off I mean
+[00:20] you you have so much repetitive motion
+[00:23] I've never understood how you could do
+[00:25] that just barely know I pull this thing
+[00:30] like right up like a fist from your face
+[00:31] there we go I always do battle ropes oh
+[00:34] okay that happened that most constantly
+[00:36] like I'll do thirty minutes you know not
+[00:39] high-intensity the whole time but just
+[00:41] keep my shoulders and arms moving as I
+[00:43] prepare for a tour but yeah I think my
+[00:46] wrist my wrist probably have gone
+[00:48] through the most hell over the years
+[00:51] like I just feel like just normal
+[00:52] people's wrist strength that probably
+[00:54] don't have because there's been so much
+[00:55] grinding like they popping oh Jesus do
+[00:58] all sorts of weird things but yeah but
+[01:01] I'm still you know I feel like because I
+[01:03] do battle ropes and because I boxing the
+[01:05] kind of workout fast twitch muscles I
+[01:07] really don't get tired that's it's
+[01:09] amazing like because so many people have
+[01:11] repetitive stress injuries yeah I mean
+[01:14] even secretaries they get carpal tunnel
+[01:15] you know people get who write a lot get
+[01:17] carpal tunnel okay so getting injuries
+[01:19] on their thumbs from you know [ __ ]
+[01:21] run with their phone too much yeah I
+[01:22] felt like when I smoked cigarettes a lot
+[01:24] I was feeling kind of the first symptoms
+[01:27] of that stuff I wasn't drinking a lot I
+[01:30] was kind of a dumpster on tour you know
+[01:32] not really taking care of my body and I
+[01:34] could really feel it and then you are
+[01:38] you still vegan yeah and you run that
+[01:40] restaurant right um with crossroads or
+[01:43] it's one of your one of the owners
+[01:44] running it is saying a lot I couldn't be
+[01:46] that shouldn't said running no towel
+[01:49] towel Ronin is the man he's like the
+[01:51] illest vegan chef ever
+[01:53] he's like an old punk rock hardcore guy
+[01:55] like new john joseph yeah john joseph
+[01:57] keeps trying to get me to go there and i
+[01:59] almost went last time he was in town
+[02:00] with them next time i'm gonna make it
+[02:02] down there I think probably 80 to 90% of
+[02:06] the people that eat their arm vegan cuz
+[02:08] it's that good yeah that's what I hear
+[02:10] Dana White's all that yeah uh uh yeah
+[02:12] Dana we
+[02:13] have dinner there when he's in town so I
+[02:15] think for Dana to be able to sit through
+[02:17] it and enjoy it and Matt Sarah I think
+[02:19] he brought everyone for like I don't
+[02:22] know if it was like fight companion it
+[02:23] was like no it was yeah it was Dana
+[02:25] White's looking for a fight yeah tube
+[02:27] show yeah I was on tour but they
+[02:29] FaceTime me from there but yeah towels
+[02:31] like a G he's the best vegan chef in the
+[02:34] world by far that's cool how did you get
+[02:36] involved with that is it well you were
+[02:38] you already you're cleaning your diet up
+[02:40] because of your your injuries or because
+[02:43] you were trying to keep your body tuned
+[02:45] for drumming or you just wanted to clean
+[02:48] it up period now I was vegetarian since
+[02:49] I was 13
+[02:50] really yeah and then after my accident I
+[02:55] was in the hospital actually long story
+[02:58] that that I'll just sum up Indo this is
+[03:00] real plain accent yeah yeah and I had to
+[03:03] eat meat in the hospital because they
+[03:04] didn't have any other kind of vegan
+[03:07] options of protein Saudi bags of beef
+[03:10] jerky whatever they would give me
+[03:12] whatever I could stomach and not like
+[03:13] kind of like think about what I was
+[03:15] eating because I wasn't eating at all
+[03:17] and I was just ditching my food giving
+[03:20] it to my friends because I didn't want
+[03:21] to eat any of it and I got caught so
+[03:23] long story short I did a little bit of
+[03:24] meeting in the hospital and when I got
+[03:27] out I just felt like the next evolution
+[03:29] of my eating would would try and be
+[03:32] vegan and it was so easy in LA because
+[03:34] we have so many great vegan restaurants
+[03:36] so yeah that was that was pretty much it
+[03:38] I was already vegan I was actually at a
+[03:40] bad brain show one of the the best
+[03:42] hardcore bands in the world to ever ever
+[03:45] do it and towel approached me there
+[03:47] saying hey I had this idea for a
+[03:49] restaurant I'd really like to be you
+[03:51] know you to be involved and I said say
+[03:53] no more just tell me what you need
+[03:54] because I do think about it all before
+[03:57] because it's a weird thing to approach
+[03:59] someone with it hey man thinking about
+[04:00] opening up a restaurant yeah I need this
+[04:02] drummer yeah right no I think he was
+[04:04] just reaching out to friends and family
+[04:06] cuz he was he was Oprah chef and he was
+[04:10] Ellen DeGeneres chef and he was all
+[04:12] these like you know really high-profile
+[04:14] people's vegan chef when they would you
+[04:17] know do a vegan diet for however long
+[04:19] some some forever so I'm just like a
+[04:21] two-week thing but I think he just got
+[04:24] to the point where he wants to do
+[04:25] something for himself
+[04:26] and then crossroads was born and I knew
+[04:30] how good he was so I just told him say
+[04:33] no more
+[04:34] tell me what you need from me and I'm
+[04:35] there and then it just you know think
+[04:38] it's been five years now well it's got a
+[04:40] fantastic reputation yeah I know a bunch
+[04:42] of people that have eaten there and they
+[04:43] loved it
+[04:44] well it's not because of me it's because
+[04:46] of town and its food for sure yeah at
+[04:48] Allen Scott the chefs they're just you
+[04:51] know the best now how hands-on were you
+[04:53] in the we just one of the people
+[04:55] promoting it like how hands-on were you
+[04:58] with the construction of it or nothing
+[05:01] with like the decor or anything he would
+[05:02] run stuff by us like hey check this out
+[05:04] to us what you guys think of this as you
+[05:06] know there's basically menus change
+[05:08] every season so it's not the same menu
+[05:10] all year long so as we prepare for the
+[05:14] next season's menu he's like testing it
+[05:16] on us the you know the season prior
+[05:18] mm-hmm so he'll be bringing out dishes
+[05:20] and and letting us try it but yeah he
+[05:23] curates the whole thing that's
+[05:24] interesting so when he gets his food
+[05:26] when he's preparing his food like is he
+[05:28] getting his stuff directly from farmers
+[05:30] like how how is he getting his food yeah
+[05:32] directly from Allen's yeah so he has to
+[05:35] curate these relationships with these
+[05:36] farmers and just go visit them and find
+[05:39] out how they're growing their food yeah
+[05:41] and and you know you'll be all set with
+[05:44] a menu if it's fall but then those same
+[05:46] vegetables aren't in season so he has to
+[05:49] rethink everything for the next season
+[05:50] and not kind of repeat himself so it's
+[05:53] really he's really got it down to a
+[05:55] science and how long has he been vegan
+[05:57] for I don't know how long talisman vegan
+[06:00] I've never really asked because it's got
+[06:02] to be incredibly difficult to be a vegan
+[06:04] chef I would imagine being a regular
+[06:06] chef is difficult but when you put all
+[06:07] those restrictions you know and you just
+[06:10] you have to make things taste
+[06:12] interesting and and different and yeah I
+[06:14] think that's where chef Scott comes in
+[06:16] because he's actually comes from a meat
+[06:18] background so he was working at Italian
+[06:21] restaurants and Italian Mediterranean
+[06:22] restaurants that cooked everything so it
+[06:25] was infusing this vegan obviously like
+[06:28] lifestyle of eating with you know chef
+[06:32] Scott's tastes as well so I think he had
+[06:34] to think that out to where it would
+[06:36] appeal and and meat-eaters would eat
+[06:38] there too and not really notice a
+[06:39] difference
+[06:40] I agree you know sometimes I'll be on
+[06:42] tour when you go to a vegan spot and
+[06:44] I'll take my bus driver in or my
+[06:46] whoever's traveling me and they're like
+[06:47] oh man this is rough you know they can't
+[06:50] stand it
+[06:51] crossroads is not one of those spots
+[06:52] where you're thinking about like man I
+[06:54] might not enjoy this meal there's some
+[06:56] good spots in the LA has some great
+[06:58] spots you ever go to follow your heart
+[07:00] in the valley all the time great spot
+[07:02] yeah that's the spot close to home that
+[07:03] I love like follow your heart
+[07:05] shout out to Erewhon everyone has like
+[07:08] good vegan options chef Vito who has a
+[07:11] spot in downtown called Alec who took a
+[07:14] vow of silence 22 years ago yeah well uh
+[07:18] the special man yet 22 years ago took a
+[07:21] vow of silence and he's done no more
+[07:23] talking no more talking what in the [ __ ]
+[07:26] is that about yeah so he just
+[07:28] communicates if he he has a lot to say
+[07:30] he'll write it down you just read the
+[07:33] lips and I know what he's saying but he
+[07:34] shows up oh that's so crazy
+[07:37] yeah he takes a lot of photos so he'll
+[07:38] show up to like punk or raps whatever
+[07:40] whatever show I'm playing he's in the
+[07:42] pit with his camera this silent guy who
+[07:45] doesn't say a word yeah and his cooking
+[07:48] is phenomenal so but yeah LA were
+[07:50] spoiled with great great being in
+[07:52] restaurant that's a [ __ ] trip yeah 22
+[07:55] years of no talking yeah he also does
+[07:57] like this juicing where this year he
+[08:00] juiced for a hundred and eighty-nine
+[08:01] days with no food Wow wouldn't he get
+[08:05] down to I think he was yeah he lost
+[08:08] about 20-something pounds
+[08:10] [ __ ] yeah he does it every year Wow
+[08:14] yeah he's trying to vanish right do not
+[08:17] talk I don't think I could read yeah
+[08:20] intermittent fasting is like as much as
+[08:22] I can do yeah I do that every night but
+[08:24] that's the vow science is freaking me
+[08:27] that silence is freaking me out
+[08:28] yeah he and I I've never really pried
+[08:31] and kind of like asked a bunch of
+[08:33] questions why doesn't even have to write
+[08:34] a lot yeah that too but no I've been
+[08:37] around when people ask him he just said
+[08:39] he wanted a timeout for 22 years yeah
+[08:42] that's a serious [ __ ] timeout how old
+[08:44] is homeboy he's got to be probably in
+[08:46] his 50s so almost half his life yeah
+[08:49] what the [ __ ] man
+[08:51] yes but he spends Christmas with me
+[08:53] spends things
+[08:53] with my family and I oh that's cool
+[08:55] everybody smiles on him yeah everyone
+[08:57] just smiles and waves basically he'd be
+[09:00] a good guy to sit next to someone who's
+[09:02] on coke told her they would just talk
+[09:03] his [ __ ] ear off he just be sitting
+[09:05] there all silent yeah yeah [ __ ] man that
+[09:10] is I've never even heard of anything
+[09:12] like that
+[09:13] does he make any noises as you whistle
+[09:15] no I've heard him snore at one time when
+[09:18] he was laughing hella hard but that was
+[09:20] about as close as it gets so he doesn't
+[09:22] laugh out loud like hahaha Wow nothing
+[09:27] terrible comedy club audience me yeah
+[09:29] yeah it would be rough he has a March -
+[09:33] it's called March of silence that
+[09:34] happens once a year where you have a
+[09:37] bunch of them that basically you know
+[09:39] that are and they're basically marching
+[09:41] for the March of silence for like the
+[09:42] cruelty of animals and whatever else so
+[09:45] yeah I'd like to have them on the
+[09:46] podcast to see how long I could talk to
+[09:48] him for yeah just to see what it would
+[09:51] be like that's so strange it sounds cool
+[09:54] I mean yeah I love that there's people
+[09:56] like that out there though I do I love
+[09:58] hearing those stories like the world
+[09:59] needs him you know like when you said
+[10:01] that I got excited yeah the guy's been
+[10:03] silent whoa you know there's something
+[10:05] about that it makes you go wow I was
+[10:07] talking hello loud when I first met him
+[10:14] because I was trying to wrap my head
+[10:15] around you know no one did an
+[10:18] introduction going hey this guy's silent
+[10:20] tell you know I had no idea so I'm
+[10:24] talking really loud he like he like just
+[10:27] whispers to me like mouse to me I can
+[10:29] hear you and I was like okay and then I
+[10:31] just figured out over time Wow silent by
+[10:34] choice whoo yeah that's heavy
+[10:37] what is he involved like heavy
+[10:39] meditation or Buddhism or anything very
+[10:41] strange like that yeah he meditates
+[10:43] I think he I was like a lot of kind of
+[10:46] Buddhist kind of qualities like kind of
+[10:49] I think he had a lean in some kind of
+[10:51] religion or practice it would be that
+[10:54] Wow yeah that's intense yeah that's a
+[10:57] serious commitment man yeah I could even
+[11:00] imagine going 22 days without talking a
+[11:02] day I think any anything I think we'd
+[11:05] catch ourselves
+[11:07] it being very hard well I was gonna get
+[11:09] my tonsils and adenoids removed because
+[11:13] I have sleep apnea because I have a fat
+[11:15] neck but I found a mouthpiece that I can
+[11:18] sleep with that keeps my tongue from
+[11:20] falling over because I have a when when
+[11:23] your neck is thick your wind hole is
+[11:26] smaller believe it or not because the
+[11:27] more muscle you put in the small your
+[11:29] your hole gets and then if you have a
+[11:31] big tongue when you lay back you can
+[11:33] actually block your airway Wow yeah and
+[11:36] so friends that I know have had their
+[11:38] adenoids and their tonsils removed and
+[11:40] they actually take some of the soft
+[11:42] tissue out of your your passageway so
+[11:44] you can breathe easier but the problem
+[11:47] is you can't talk for like seven days
+[11:49] yeah that would probably be rough for
+[11:51] you the main yeah yeah and I wonder if
+[11:53] wide neck you know like that the the
+[11:55] internet phenomenon is the same problem
+[11:57] I get that guy must sleep terrible yeah
+[11:59] yeah his neck starts up here it's crazy
+[12:01] his neck starts at the top of his ears
+[12:03] yes its way to his shoulders tonsils out
+[12:05] is a it's a bum out I did that did you
+[12:09] yeah did you have tonsillitis now you
+[12:13] know what I had is I had I was smoking
+[12:16] tons of weed right like but I would
+[12:19] smoke backwards like I love the woods so
+[12:21] yeah everything yeah so I'd smoke about
+[12:26] 20 20 backwards a day he's like yeah and
+[12:30] I was recording an album with the
+[12:33] transplants and I turned to skinhead
+[12:35] Robin I was like I think I think I have
+[12:37] something like someone's lodged in my
+[12:38] throat like I could barely breathe right
+[12:40] now and kept smoking didn't even you
+[12:45] know I didn't I didn't really know what
+[12:46] was going on and then I went to the
+[12:47] hospital that night and they rushed me
+[12:50] to another hospital to get my tonsils
+[12:51] removed because they were like twice the
+[12:54] size that they should be and then I had
+[12:55] a throat infection and then it comes to
+[12:58] find out I had what's called like
+[12:59] Barrett's esophagus which is like
+[13:01] pre-cancer wrote lining my esophagus
+[13:03] from smoking and I don't know I guess
+[13:07] just abuse over the years so that was
+[13:09] that's what led to my tonsils being
+[13:11] pulled out these are serious think about
+[13:14] this like you probably shouldn't smoke
+[13:15] too many of these because now it's just
+[13:17] plain tobacco
+[13:19] love I love him--no I got to a point
+[13:21] where I couldn't smoke joints I couldn't
+[13:23] smoke out of a bong yeah a pipe it had
+[13:25] to be a backward that's where I am
+[13:27] yeah that's bottle of it I like him did
+[13:29] you ever smoke cigarettes no see I did I
+[13:31] smoked a lot of cigarettes and then I
+[13:33] quit smoking cigarettes just smoked weed
+[13:35] and then I discovered backwoods and I
+[13:38] was kind of getting a little bit of both
+[13:39] still getting the tobacco that I missed
+[13:42] but yeah yeah my friend Ari said that he
+[13:46] started smoking spliffs in England you
+[13:48] know and when he was over in the UK they
+[13:51] next the weed with the tobacco and he
+[13:53] got totally hooked on tobacco again
+[13:55] because he had quit cigarettes for years
+[13:56] and then he started smoking the weed
+[13:58] mixed with the tobacco and before he
+[14:00] knew it he was smoking cigarettes again
+[14:02] yeah so he smoked while he was over
+[14:03] there and then he quit as soon as he was
+[14:05] done and then came back to you u.s. yeah
+[14:08] I feel like they just started smoking
+[14:09] just pure weed over there Geoffrey yeah
+[14:12] for years it was both yeah I don't
+[14:14] understand that like had that how'd that
+[14:16] work out over there yeah it's still so
+[14:19] illegal over there - it's like jesus
+[14:21] [ __ ] christ it's 2019 fellas let's
+[14:24] get at times when I used to fly over
+[14:25] there we'd have to tape tons of weed to
+[14:27] our nuts just just to be able to end our
+[14:30] road cases just so we could smoke over
+[14:32] there because they had dirt weed yeah it
+[14:34] was horrible weed but yeah it was a pain
+[14:36] in the ass it's [ __ ] dangerous
+[14:38] bringing that stuff overseas though yeah
+[14:40] if you get arrested that's that's
+[14:41] serious yeah I brought it so I'd bring
+[14:44] it everywhere like that and we went to
+[14:46] talk about heap like gaff tape Jesus man
+[14:50] I feel like you've heard of the first
+[14:52] layer of your nuts off when you go to
+[14:55] grab your weed but yeah we would do that
+[14:57] and then it's a commitment though yeah I
+[14:59] actually brought it I made the big
+[15:01] mistake of not bringing a bunch but I
+[15:03] got to Iraq we went to Iraq for like
+[15:06] right when the war broke out what was it
+[15:08] like 2003 or 2004 and we were over there
+[15:11] and and scandalous Estevan Oriol the
+[15:14] photographer he's over there with us
+[15:15] documenting the whole thing and I pull
+[15:18] it out because we're at this this
+[15:19] Airport in Bahrain but I feel like it's
+[15:21] a field and no one's gonna mess with us
+[15:23] and he's like hey bro look look at look
+[15:26] at the back you [ __ ] passport look
+[15:27] what it says and it says right there
+[15:28] like you're basically like they'll kill
+[15:31] you if the if
+[15:32] find you know you brought any drugs into
+[15:35] Iraq or you know where we were ball rain
+[15:37] so I did away with everything and I just
+[15:39] kind of took up drinking I know not
+[15:42] really much of a drinker but do you
+[15:45] still smoke weed I don't know I have a
+[15:48] friend who's like a dear friend is like
+[15:50] cool like young doctor named dr. B in
+[15:52] San Diego and I called them he actually
+[15:55] removed my my tonsils and then like a
+[15:58] week later I found out I had what was
+[15:59] called pre-cancer Barrett's esophagus I
+[16:02] said what does this mean
+[16:03] doctor be shy just like kind of like
+[16:05] kind of like toned down like how much
+[16:07] I'm smoking he's like no this means like
+[16:09] this is your warning shot like pay
+[16:11] attention stop smoking esophageal cancer
+[16:15] is a rough one too that's what killed
+[16:17] Christopher Hitchins really yeah yeah
+[16:20] it's uh that's a rough one that kills a
+[16:21] lot of [ __ ] people once you get it
+[16:23] you get it and you're gone yeah it's
+[16:26] cute I think kills like I think hitch
+[16:27] said like 95% of the people get it now
+[16:30] yeah so I felt like he's always pretty
+[16:33] honest with me you know I just stopped
+[16:35] like I love CBD yeah that's pretty much
+[16:38] what I messed with now but that's all do
+[16:41] you find that you see a lot of people
+[16:43] use CBD and they find that it alleviates
+[16:45] anxiety and lets some sleep better do
+[16:47] you find that yeah as long as I take
+[16:50] like triple or quadruple the amount that
+[16:52] it says to take on the bottle right
+[16:53] because I feel like what I take if I
+[16:55] take what the proper dosage is it
+[16:57] doesn't do much but I'm one of those
+[17:00] people whose minds racing constantly
+[17:02] I'll get home from the studio at 1 or 2
+[17:05] and I'm just like kind of like figuring
+[17:08] out how long I gotta sleep before I get
+[17:09] to wake up my kids and go to school and
+[17:11] I just sit there with my wheel spinning
+[17:13] unless I use CBD and then that kind of
+[17:16] helps and then I had I have what's
+[17:18] called trigeminal neuralgia have you
+[17:20] ever heard of that no it's the [ __ ]
+[17:22] worst it's called the suicide disease
+[17:24] because basically all of your nerves and
+[17:26] your face are firing all at the same
+[17:28] time so it almost feels like what you
+[17:31] feel when you think you need a root
+[17:32] canal or you have like a tooth that's
+[17:33] messed up but I got trigeminal neuralgia
+[17:36] and I've only had 4 episodes but when I
+[17:39] do get it I use CBD and it it's been
+[17:43] amazing
+[17:43] but if you
+[17:44] get up a lot of people will go actually
+[17:46] go to a dentist get a bunch of root
+[17:48] canals done that they don't need or they
+[17:51] don't know how to treat it and usually
+[17:53] people kill themselves whoa
+[17:55] yeah it's gnarly I didn't really know
+[17:57] about I just was homeland and I was like
+[17:58] what the [ __ ] like my face is burning
+[18:02] hmm it's miserable onic pain condition
+[18:06] that affects the trigeminal nerve which
+[18:09] carries a sensation for your face to
+[18:10] your brain if you have trigeminal
+[18:12] neurology even mild stimulation of your
+[18:14] face such as from brushing your teeth or
+[18:16] putting on makeup make trigger a jolt of
+[18:18] excruciating pain holy [ __ ] man
+[18:21] yeah what is the cause what causes that
+[18:23] all different things they thought like
+[18:25] mine I maybe got mine from impact like
+[18:27] from my accident mm-hmm and then maybe a
+[18:30] little sparring that I've done has has
+[18:33] triggered it mmm
+[18:34] also dental when I get dental work done
+[18:36] it triggers it so but the CBD stops it
+[18:40] yeah CBD and then if it's really bad
+[18:43] there's um this medication called
+[18:45] gabapentin and i feel like that's been a
+[18:49] real great way to kind of like mask the
+[18:52] pain and one once the gabapentin calms
+[18:54] the nerve it kind of Dead's the nerve 24
+[18:57] or 48 hours it's gone if it's a really
+[18:59] bad episode if it's a not so bad
+[19:02] CBD just keeps it away Wow the they say
+[19:05] that a lot of nerve diseases are
+[19:07] inflammation caused so sometimes like if
+[19:10] you change your diet you can you can
+[19:12] smooth some of those out like lower the
+[19:14] sugar intake and some of the other
+[19:15] things that might be causing
+[19:16] inflammation did they give you any
+[19:18] advice like that no but around the same
+[19:20] time I figured out I was allergic to
+[19:22] gluten which I really thought was
+[19:23] horseshit whatever I was like yeah right
+[19:25] okay yeah we need to be gluten free and
+[19:29] then I tried it and and the doctor I had
+[19:31] seen said well you really gotta try it
+[19:33] though you got to commit a hundred
+[19:34] percent you got to give it at least like
+[19:36] two to three weeks and see how you feel
+[19:38] and I did it and it was a game-changer
+[19:40] mmm like I felt normal whereas I'd have
+[19:44] a lot of ups and downs depending on what
+[19:45] I was eating and I'm still eating clean
+[19:47] at the time I'm still eating vegan and
+[19:49] I'm eating you know whatever but uh you
+[19:52] know a lot of a lot of us can't you know
+[19:54] digest or kind of our bodies can't
+[19:57] absorb the gluten
+[19:58] yeah well it's have you ever had pasta
+[20:00] in Europe yeah it's very different oh
+[20:02] yeah yeah so much [ __ ] in ours you know
+[20:04] so much well it's the Maynard explainer
+[20:07] Keenan from tool he explained it to ex
+[20:09] you know he runs in Austria in Arizona I
+[20:11] didn't know that yeah he's he's a
+[20:14] [ __ ] wizard man he's got his own
+[20:15] winery runs in Austria but he said that
+[20:20] when and we subsequently looked it up
+[20:23] after he told me this in the early turn
+[20:26] of the century when they were growing
+[20:28] wheat they experimented and changed the
+[20:31] wheat to make it more dense so that you
+[20:34] could get more yield out of an acre and
+[20:36] so by doing that they changed what you
+[20:39] how your body processes it and there's
+[20:41] more complex glutens in like a stalk of
+[20:43] wheat like an old old timey wheat like
+[20:45] you would get like in Italy or France or
+[20:47] something like that
+[20:48] it's a different wheat it looks
+[20:49] different it's it's a much more scrawny
+[20:51] looking plant and so if they had an acre
+[20:53] that you don't get nearly as much wheat
+[20:55] yeah and so in America we said where's
+[20:58] butter and we made it bigger and better
+[21:00] and thicker and your body is a much
+[21:02] harder time processing it and that's why
+[21:04] people get so much inflammation and
+[21:06] leaky gut and all these different
+[21:07] ailments that people get from bread and
+[21:09] pasta in this country it's because of
+[21:12] this much more complex wheat but I buy
+[21:15] pasta overseas I buy this goddammit I
+[21:21] found out about it in Italy that they
+[21:24] sell it in America just for that reason
+[21:26] yeah Wow because I can eat it and if I
+[21:29] want pasta it's not that disgusting yeah
+[21:32] I love pasta I do too but it's just it's
+[21:36] something that I found if I eat a lot of
+[21:39] it just [ __ ] me so I have to make sure
+[21:41] that I don't let me find it real quick
+[21:42] and I'll pull up the name of it and I
+[21:45] felt like leaky gut was like a hoax I
+[21:47] was like what are you talking about I've
+[21:49] never even heard about this but I feel
+[21:51] like it's legit and and they're spot on
+[21:53] about that
+[21:53] it's called Morelli Morelli spaghetti
+[21:56] and it's from Italy and the type of
+[21:59] wheat that they use it's a very
+[22:00] different type of wheat I get to it
+[22:03] taste different
+[22:03] it doesn't bloat you up as much it's uh
+[22:06] I think somebody explained it to me like
+[22:09] what kind of wheat
+[22:10] looking for but what I found is it I've
+[22:14] tried the gluten-free pasta and it's
+[22:16] like you know what I like better than
+[22:19] gluten-free pasta spaghetti squash
+[22:21] spaghetti squash with marinara sauce
+[22:24] it's [ __ ] delicious and I actually
+[22:26] sometimes like it better than pasta but
+[22:29] they said that I ever won all the - yeah
+[22:31] in the hot part it's spaghetti squash is
+[22:33] outstanding yeah yeah and it's guilt
+[22:36] free you know you can eat it you you
+[22:38] you're not thinking you're you know
+[22:39] bloating yourself up yeah but we've
+[22:42] ruined pasta we ruined pot but you know
+[22:45] it gives you that feeling you know that
+[22:47] feeling you get after eat a lot of it
+[22:48] like oh that's what that is your body's
+[22:50] like what the [ __ ] am I doing with this
+[22:52] yeah you're immediately tired yeah
+[22:54] loaded yeah but if you eaten in Italy
+[22:57] you don't get that feeling and you look
+[22:58] at those people over there they're not
+[23:00] fat yeah it's weird it's true
+[23:03] yeah they walking around all over the
+[23:05] place and they're eating pasta yeah yeah
+[23:08] Europe everyone's walking or riding
+[23:10] bikes yeah Americans that's the thing
+[23:13] about France to France when they're
+[23:15] eating those baguettes there they're
+[23:17] eating it with like this very rich
+[23:18] butter that's like grass-fed butter so I
+[23:21] got dark yellow butter so it's very high
+[23:23] fat content it's got a lot of essential
+[23:26] fatty acids in it and just you're just
+[23:28] getting it and it's a different kind of
+[23:29] bread - and meanwhile they're not fat
+[23:31] yeah and they're drinking one and
+[23:33] they're not fat like it doesn't make any
+[23:34] sense yeah agreed
+[23:37] standard American diet it's just [ __ ]
+[23:39] up but I've always wanted to ask you
+[23:41] that about like the drumming because I
+[23:44] mean everything that I do like
+[23:46] everything repetitive whether it's
+[23:47] boxing or even archery a lot of people
+[23:50] get injuries in archery just from
+[23:52] repetitive stress from just pulling the
+[23:54] bow back over and over again I'm like
+[23:55] god damn Travis this your whole [ __ ]
+[23:58] thing is repetitive that KBB I see you
+[24:01] every time I see you like my shoulders
+[24:02] hurt yeah my elbows hurt no I mean my
+[24:05] first week hurts my first week sucks
+[24:08] like on tour really like getting
+[24:09] acclimated because even practice
+[24:11] rehearsals are not a show it's just a
+[24:13] different intensity but but yeah as long
+[24:16] as I train for it I'm cool I kind of
+[24:18] like boxing has helped so much and I
+[24:22] don't box because I think I'm a tough
+[24:23] guy
+[24:24] I think I can you know beat people's
+[24:26] asses or whatever it's really just for
+[24:28] functionality like so I can play the
+[24:31] drums the way I want to so you know
+[24:32] started doing it for that reason well no
+[24:34] I started when I knew my son was being
+[24:37] born like when my girlfriend at the time
+[24:38] was pregnant I woke up that morning I
+[24:41] ran to the freeway and back like twice
+[24:44] and then I wouldn't found a boxing gym I
+[24:47] walked into ten goose I want actually
+[24:48] walked into jump raise who used to be
+[24:51] Tyson's sparring partner and it was like
+[24:55] 2005 yeah - no 2003 and then I started
+[25:00] boxing I just walked into ten goofs and
+[25:02] I started jump roping and hitting pads
+[25:06] and I don't know I just had this urge to
+[25:08] wanna like box and be better that's so
+[25:12] interesting like just from knowing that
+[25:14] you were gonna be a dad
+[25:15] I just wanted to be better I wanted like
+[25:17] immediately I just thought to myself I
+[25:20] wanted a lifestyle change
+[25:21] I needed we evolve and I needed to know
+[25:24] how to protect this little human I was
+[25:27] bringing into the world and I knew I
+[25:29] needed to change my lifestyle because I
+[25:30] was I was kind of out of control Wow
+[25:34] it's a amazing thing that happens to you
+[25:37] when you become a father
+[25:38] it's a weird switch that goes off in
+[25:40] your brain that you can't really
+[25:41] describe to people that don't have kids
+[25:43] yeah and it's even weirder when the
+[25:45] switch doesn't go off so like you know
+[25:47] you see people who are horrible fathers
+[25:49] no more my parents and I just don't get
+[25:51] like how didn't how didn't that switch
+[25:54] turn on for you right you know how yeah
+[25:56] like the ones who don't want to be
+[25:58] around their kids freak me out the most
+[26:00] yeah they just don't want to be they
+[26:02] just want to be away all the time I just
+[26:03] I don't get it yeah I don't know why
+[26:05] yeah I couldn't imagine but yeah and now
+[26:08] I love boxing like it's one of my
+[26:10] favorite things to do I'm I've been
+[26:12] doing Muay Thai a little bit more
+[26:13] because I can kind of save my hands yeah
+[26:15] cuz it's not good on my hands in any way
+[26:17] shape or form how so just the impact
+[26:20] over and over do you feel professionally
+[26:23] wrapped you get them rounded correctly
+[26:24] yeah but it still bothers my knuckles
+[26:26] hurt really yeah are using big heavy
+[26:29] gloves yeah what a one ounce gloves are
+[26:31] using I think there are 14 outs mm maybe
+[26:34] should switch to like 18 or 20 yeah
+[26:37] get a thicker padding in the front it'll
+[26:39] protect your knuckles better and it even
+[26:41] gives you a better workout really
+[26:42] because you're pushing more weight a
+[26:43] little heavier yeah yeah pushing more
+[26:44] weight and you'll have more more impact
+[26:47] but another thing I would say is get a
+[26:50] bag that's a water bag water bags are
+[26:53] fantastic you ever seen those yeah I've
+[26:55] seen them at the gym tell you the
+[26:56] awesome [ __ ] dig into those things
+[26:58] and it's it's minimal impact but you
+[27:00] still pushing the same amount of weight
+[27:02] you know through throwing the punches
+[27:04] you can still explode with the same
+[27:05] amount of force but you know you're
+[27:07] sinking into that bag and so a lot of
+[27:10] people with tendonitis find that that's
+[27:12] a way better option there's another I
+[27:14] have two bags out there one of them is a
+[27:17] fairtex bag and fair text makes a it's a
+[27:20] muay thai bag but it's softer and the
+[27:23] other one's a monster bag the monster
+[27:24] bags are really hard stiff right hands
+[27:27] yeah dances [ __ ] so I like the
+[27:28] combination of the two but the fairtex
+[27:31] one is good if I'm injured if like my
+[27:32] shoulders bother me or something like
+[27:34] that I can dig into that bag and it's
+[27:36] not gonna have the same jolt yeah
+[27:38] hitting something solid and hard so if
+[27:40] you're having problems with your hands
+[27:41] that's what I would say another thing
+[27:42] you can do is they make wraps there are
+[27:45] gel wraps you slide them on your hand
+[27:47] almost like a glove
+[27:48] yeah that's what he just told me about
+[27:49] what you guys are trained with yeah
+[27:50] those are great yeah and then that on
+[27:53] top of the heavier glove I bet it'll
+[27:55] stop all the hand stuff yeah I'm gonna
+[27:57] try that yeah you just told me about
+[27:58] that that'll protect my knuckles a
+[28:00] little bit more because I find if I lift
+[28:01] weights I never get big like I never
+[28:04] look big but I feel kind of stiff and
+[28:07] just slow it's the worst feeling ever
+[28:10] and I did it one time right before
+[28:12] torrid I was living in Chevy Hills for a
+[28:14] little while and I was working out at a
+[28:16] gym over there and it was all body
+[28:17] builder guys and I would train with one
+[28:19] just to like be pushed and I got behind
+[28:21] my kit and it was the worst feeling ever
+[28:24] the worst I felt like I was in slow
+[28:26] motion so I figured out like I need to
+[28:29] train how I want to move when I'm
+[28:32] actually playing the drums weightlifting
+[28:33] is fine but you have to do it lightly
+[28:36] the thing about weightlifting is people
+[28:38] want to do it to failure all the time
+[28:39] you know do ten sets of this and five
+[28:42] sets of that and go to failure every
+[28:44] time come on push push push but yeah
+[28:46] don't do that you shouldn't do that yeah
+[28:48] I subscribe to the Pavel
+[28:50] at Cellini method he's a famous Russian
+[28:54] kettlebell instructor and his philosophy
+[28:56] is that you should do more sets but less
+[29:00] repetition so like say if you could do a
+[29:02] weight and you could lift it 10 times
+[29:04] don't lift it ten times lived it five
+[29:06] right he lifted ten let's talk about
+[29:12] esophageal cancer
+[29:14] my voice is rebelling but if you say if
+[29:16] you could lift something 10 times lift
+[29:18] it five times and just do more sets and
+[29:21] give yourself a lot of time in between
+[29:23] sets because if you're trained for
+[29:25] strength you can do certain things like
+[29:27] kettlebells and specific where it's
+[29:30] strength but it's also endurance but
+[29:32] really if you just want to do strength
+[29:33] the best way to do it is to do a short
+[29:37] set of a few repetitions and then do
+[29:41] multiple versions of that like take a
+[29:43] long time off like 5-10 minutes and then
+[29:45] do another 5 reps 5-10 minutes do
+[29:47] another 5 reps and then do it again in a
+[29:50] couple of days and then do it again
+[29:52] stead of like once a week where you just
+[29:53] blow your body out you're like ahhh that
+[29:56] feeling we could barely move that's
+[29:57] terrible
+[29:58] yes it's not a smart way because you
+[30:00] don't recover as well yeah and you end
+[30:02] up getting hurt or you had to take a day
+[30:04] off you know what I started doing was
+[30:05] with this one trainer named Don we
+[30:08] figured out kind of like a metronome
+[30:09] workout so you're actually like a tempo
+[30:12] workout where you're training into a
+[30:14] tempo oh so you have to do high reps
+[30:17] like you know you'll stay to a minute
+[30:18] and maybe the tempo is like you know
+[30:22] what I mean so whatever even if it's
+[30:23] quick and you're not doing everything
+[30:25] like exactly technique wise really slow
+[30:28] and you know it's it's kind of like
+[30:31] making sure you stay up with the tempo
+[30:32] which I feel like really helped me with
+[30:34] with staying quick and fast with drums
+[30:36] and more endurance you know yeah that
+[30:38] makes sense like is is drumming a young
+[30:41] man's game I mean is it like athletics
+[30:43] where as you get older drummer slow down
+[30:45] I don't know I haven't
+[30:48] I played just as wild as I did back in
+[30:50] the day and how old you know 43 you look
+[30:53] great
+[30:53] oh I think you don't look 43 yeah Max
+[30:55] Weinberg told me one time he was he
+[30:57] watched me play and he
+[30:58] I got a show or a blink played and he's
+[31:00] like I don't know how much longer you
+[31:01] can play like that dude he's like you're
+[31:05] gonna need back surgery you play like
+[31:07] you have rabies smashing the [ __ ]
+[31:10] drums so knock on wood nothing has
+[31:12] changed and I've just I play exactly how
+[31:14] I always have you know I don't even want
+[31:17] to think about a day where I have to
+[31:19] play any different right sure it will
+[31:20] come but do you get massages yes that
+[31:23] helps a lot right massages epson salt
+[31:26] baths that's where the tank comes in
+[31:30] play man that thing's amazing the tank
+[31:32] is all epsom salts lucky you dude you
+[31:34] don't [ __ ] crazy when you watch that
+[31:38] i watch you play and I would just go how
+[31:40] the [ __ ] in this guy maintain this pace
+[31:43] because everybody drums differently you
+[31:46] know I mean it's really interesting to
+[31:47] watch people's different especially my
+[31:50] friend bill burr really got into
+[31:52] drumming and you know he's really into
+[31:54] it and I like watching him play and it's
+[31:56] it's interesting to see someone take
+[31:57] something up and get better and take
+[31:59] lessons and learn it but the thing that
+[32:02] really strikes me is how many
+[32:04] repetitions are involved like as you're
+[32:07] doing this like the amount of times
+[32:09] you're hitting these drums is [ __ ]
+[32:11] insanity you got to pace yourself if
+[32:14] it's a two-hour set I know like oh this
+[32:17] is a verse of this song I can kind of
+[32:18] this is not a big big part you know you
+[32:21] can kind of chill but it's like a round
+[32:23] you know if we're going around look up
+[32:25] in the clock and you realize oh wow I
+[32:26] still have two minutes left
+[32:28] yeah well pace yourself and you know
+[32:30] what I mean yeah that's kind of how I
+[32:31] approach shows but but the goal is to
+[32:33] train so much before you even get on
+[32:35] tour that you're not even having to
+[32:37] think about that you're just playing the
+[32:39] show exactly how you want to play it's
+[32:40] almost I imagine it's like that with
+[32:42] fighting where you envision what you
+[32:45] want to do in your head and you're in
+[32:46] the shape and you know the technique to
+[32:49] execute mmm you don't have to think
+[32:51] about our goal you know I can't do that
+[32:52] I'm not I didn't practice that enough
+[32:54] I'd like to be able to just do whatever
+[32:56] I'm feeling and not you know be like oh
+[32:59] [ __ ] I don't know how to do that or I'm
+[33:02] gonna get tired if I do that I don't
+[33:03] want that to happen right now so that's
+[33:05] the goal it's just being able to execute
+[33:08] what you have the idea in your head well
+[33:11] musicians
+[33:12] have to have discipline because you have
+[33:13] to practice it sit yes that's one of the
+[33:16] things that makes you guys so unique in
+[33:18] the entertainment world it's like I mean
+[33:21] I guess maybe actors have to practice
+[33:22] standup comedians we only practice in
+[33:25] front of an audience but you guys have
+[33:27] to [ __ ] practice less you don't go
+[33:30] through your show
+[33:30] no before you go out no I write I write
+[33:33] and I listen to recordings of old sets
+[33:36] but I don't like to sit in front of a
+[33:38] mirror go hey folks yeah I don't do that
+[33:41] I don't know anybody because it would
+[33:43] feel so weird when you go up to do it it
+[33:44] feel we're Hurst right yeah that's the
+[33:47] last thing you want you got to be in the
+[33:48] moment same thing happens with if you
+[33:51] practice too much as a band and then you
+[33:52] go try to play those songs and act like
+[33:54] you're having fun that's what happens so
+[33:57] I try to practice a lot on my own and
+[33:59] I'm not even practicing those songs just
+[34:01] kind of just drill you know yeah like
+[34:04] Sam Kinison used to have a joke about
+[34:06] the Beach Boys about their going out
+[34:09] there likes playing I wish they could
+[34:11] all be california girls again and like
+[34:13] jesus [ __ ] right we're okay like it
+[34:16] becomes a job that you don't want that
+[34:18] you you want it to be fresh and exciting
+[34:20] and you want it to be something that
+[34:22] you're really in the moment really
+[34:23] thinking about so I make up new [ __ ] on
+[34:25] the spot - that's the best is I just
+[34:27] make up new fails or just try to
+[34:28] reinvent the songs to the point where
+[34:31] even like Marc will look back at me and
+[34:32] be like you know whatever like that's
+[34:35] the best you know just kind of freaking
+[34:38] it on the fry and and even to the crowd
+[34:40] it's like oh that's that's cool you
+[34:42] haven't heard like that before
+[34:43] yeah that's like after two or three
+[34:46] months of being on tour you do stuff
+[34:47] like that yeah when you get off tour do
+[34:51] you consciously give yourself a rest
+[34:54] no I'm busier at home than I am on tour
+[34:57] on tour so lavish man like you have you
+[35:00] have someone saying I mean you do have
+[35:02] people kind of waiting on you hand and
+[35:04] foot somewhat you know like a catering
+[35:07] you know ready if you want to eat or hey
+[35:10] you got to go do an interview 30 minutes
+[35:12] before you go onstage cars outside
+[35:15] waiting for you after the show taking
+[35:16] you to the hotel so that doesn't happen
+[35:18] at home right you know and at home I do
+[35:21] so many other things besides playing in
+[35:23] the band like I
+[35:24] you know produce a bunch of rap artists
+[35:26] I have crossroads I have clothing
+[35:28] companies have three kids
+[35:30] it's way busier at home Torres Torres a
+[35:34] vacation that's interesting yeah for me
+[35:36] Wow
+[35:37] because I don't know how to say no
+[35:38] either mind you I have a lot of things I
+[35:40] love that I love doing so I can't
+[35:42] complain and be like oh I hate going to
+[35:44] the steer I hate doing this I love it
+[35:45] all I just kind of love it all so much
+[35:49] that I have trouble saying no sometimes
+[35:51] so when you you're you said you're
+[35:54] managing or you're producing rap artists
+[35:57] yeah how many I come in - I'm in the
+[36:00] studio right now with this group called
+[36:01] suicide boys who are awesome they're
+[36:03] from New Orleans and we have a EP coming
+[36:06] out that's called a live fast die
+[36:08] whenever and we just finished over the
+[36:11] weekend so or yesterday so it's you know
+[36:15] you go in there at noon and you leave
+[36:17] there at 4:00 in the morning every day
+[36:19] until you're finished because they're
+[36:20] only in town for a little while so yeah
+[36:23] it takes a little bit and then like I
+[36:25] worked on xyx extant ations album before
+[36:29] he passed away I work with like smoke /
+[36:33] big men's a bunch of different artists
+[36:36] do you like that because it's a
+[36:38] different genre helps you mix it up a
+[36:40] little bit you're just a big rap fan as
+[36:42] well obviously you're wearing an IceCube
+[36:43] shirt yeah I grew up actually listen to
+[36:46] rap music before I listen to any kind of
+[36:48] music at all like Beastie Boys and Run
+[36:51] DMC and Public Enemy and the farside and
+[36:54] caris one that's what I grew up on and
+[36:56] then I discovered you know I loved metal
+[36:58] - I love Slayer and King Diamond and
+[37:01] then and then I discovered a band called
+[37:03] Minor Threat and the descendents and
+[37:05] Black Flag and Bad Brains and I just
+[37:08] liked at all and then my dad listened to
+[37:09] jazz music and country rebel music so I
+[37:12] was born in raised on like Johnny Cash
+[37:14] and bottoms and everything so and I kind
+[37:17] of learned to love it all and I had
+[37:19] people around me when I was young when I
+[37:22] was first learning how to read music
+[37:23] that just kept embedding in my head like
+[37:25] you gotta listen to everything can't you
+[37:27] can't just learn one thing so I was
+[37:30] actually taught how to play that
+[37:31] traditional jazz when I was really young
+[37:32] and then I taught myself how to play
+[37:35] everything else that's
+[37:37] cool yeah but that's always sucked
+[37:39] everything that's nice you have an
+[37:40] appreciation for all those different
+[37:41] genres - yeah it'd be like if all you
+[37:44] did was the UFC commentating you'd be
+[37:47] like I'm gonna go crazy right this must
+[37:50] be so much fun for you and all of your
+[37:51] other endeavors like same thing like if
+[37:53] I was only making you know punk rock
+[37:56] records or pop punk records or whatever
+[37:58] it was I think I would go insane and
+[38:00] it's been like that for three years you
+[38:03] know yeah I think different people I
+[38:05] think some people if they're just doing
+[38:07] like baseball commentary or something
+[38:08] like that they're [ __ ] happy [ __ ]
+[38:10] they love it yeah I just want to do that
+[38:12] but there's some people like you or
+[38:13] maybe like me that I need different
+[38:16] things
+[38:16] yeah I will go crazy I love like studio
+[38:20] life is awesome like I did a handsomer
+[38:21] thing the other week and then the next
+[38:23] day I'm in with like a band called
+[38:25] nothing no we're doing something
+[38:27] completely different this week I'm doing
+[38:28] a little peep and xxx remix it's it has
+[38:33] to be like that for me or I get really
+[38:34] bored and I I just don't feel creative
+[38:36] right kind of like I don't know that's
+[38:39] cool done like that how does that work
+[38:41] like you get a phone call or someone
+[38:42] texts you hey Travis we need you to come
+[38:45] in here and light this [ __ ] on
+[38:46] fire and you get in there and yeah it's
+[38:49] been like that you know or like you know
+[38:51] some projects manifested too like
+[38:53] there's this band called the fever 333
+[38:55] that I produce and and write with and
+[38:59] they just got nominated for a Grammy
+[39:00] like throughout for a Grammy for Best
+[39:02] Rock performance and that was something
+[39:04] I just envisioned with the singer that
+[39:06] band Jason and we started literally a
+[39:09] year ago and and they're nominated for a
+[39:12] Grammy Wow so like stuff like that like
+[39:15] kind of being an architecture without
+[39:17] building buildings you know being
+[39:18] architecture and music or whatever it is
+[39:21] whatever it is you're passionate about
+[39:22] that excites me you just building sounds
+[39:24] yeah like there's nothing better and
+[39:26] working with different genres to's got
+[39:28] to be exciting too because you can mix
+[39:29] it up and yeah Wow now when you're like
+[39:33] what when how do you how like schedule
+[39:38] your time in terms of like how much time
+[39:40] you're gonna spend on your own studio
+[39:41] work how much time you're gonna spend on
+[39:43] other people's stuff to just play it by
+[39:45] ear it seems like with a guy like you
+[39:47] you must get so many requests and you
+[39:48] said you have a hard time saying no
+[39:51] I would imagine it's [ __ ]
+[39:52] overwhelming yeah well my kids come
+[39:55] first before everything anything you
+[39:57] know and then I get a lot of
+[39:59] opportunities like my son Landon it was
+[40:02] a big rat fan like he loves right he was
+[40:04] raised on rap music like he grew up
+[40:05] touring with me and little Wayne when I
+[40:07] talked with Lil Wayne and he loves being
+[40:11] in the studio so he'll come with me to
+[40:13] the studio so I can kind of like
+[40:14] double-dip work at the same time as he's
+[40:17] in be making music well my studio B
+[40:19] which is really really awesome and then
+[40:21] same with Alabama she's me I'm lucky
+[40:24] they're both musicians cuz Alabama and
+[40:26] Landon both love music so they like
+[40:29] going on tour with me they like that's
+[40:30] amazing me yeah or I probably wouldn't
+[40:33] be working so much that's really cool
+[40:35] yeah what the [ __ ] is it like going on
+[40:37] tour with little Wayne it was so awesome
+[40:40] I came out with a rap a rap project
+[40:42] where I produced I've made all the beats
+[40:44] and I just got all my favorite rappers
+[40:46] everyone from like RZA from the wu-tang
+[40:48] clan to Lil Wayne game Swizz Beatz it
+[40:53] was it was crazy I think I had 30 guests
+[40:56] on there and Wayne asked me to go out on
+[40:58] tour with him so me and Mix Master Mike
+[41:00] from the Beasties were like the opening
+[41:02] act on that tour and Drake was out there
+[41:05] Nicki Minaj and Rick Ross Wow fun so I
+[41:09] loaded up the bus with everyone I
+[41:11] brought yellow wolf out I brought j-roc
+[41:13] I bought Paul wall I brought the cool
+[41:16] kids and we just gotten a bus and we
+[41:17] went on tour Jesus is the best yeah
+[41:20] how long are those shows all those
+[41:21] people how long is that show that psycho
+[41:23] well with all the acts and there's four
+[41:26] hours yes long [ __ ] show's over like
+[41:31] good Lord that audience must be beaten
+[41:33] into a coma oh yeah but then the
+[41:35] headliners on who they're really there
+[41:36] to see right but that that was a big
+[41:39] accomplishment just being able to play
+[41:41] in that genre of music cuz I listened to
+[41:44] it as a kid and there's never really
+[41:45] been a home for a live drummer in a rap
+[41:48] scenario right so from the beginning I
+[41:52] think I don't even know what year was
+[41:54] when puff called me when I just joined
+[41:56] blinking he's like y'all want you to be
+[41:58] in this video I was like what like cuz I
+[42:01] pretty much was I was just like well I'm
+[42:03] I'm in
+[42:04] the biggest you know bands in the world
+[42:06] I'm so stoked I couldn't ask for
+[42:08] anything more and I always wanted to go
+[42:10] I always wanted to uh yeah i'ma get some
+[42:13] that tour was so fun but yeah once puffs
+[42:16] asked me to be in a video it was kind of
+[42:17] like a it just snowballed from there you
+[42:21] just got in that world yeah and I had no
+[42:24] idea why he wanted me
+[42:25] you know but I was just like wow this is
+[42:27] so cool because I grew up on Biggie like
+[42:30] I loved all that genre of music but I
+[42:32] was okay with just staying in my lane as
+[42:33] well but when I got accepted with like
+[42:36] open arms and I was invited to do like
+[42:38] BT Awards with Ti or Tyga or Wayne it
+[42:42] was just insane you know playing the
+[42:44] Grammys I the funny thing is I've never
+[42:46] played the Grammys with blink but I
+[42:48] played the Grammys with like pitbull
+[42:50] Drake Eminem like it's so weird it's so
+[42:54] weird to me I just feel it's a trip the
+[42:57] opportunities I've had outside of rock
+[42:58] music have been such blessings do you
+[43:01] when you say all those things and you
+[43:02] know that you did all these things it
+[43:04] almost seemed like you're living in a
+[43:05] dream yeah I feel like smacking myself
+[43:07] like it doesn't feel real when people go
+[43:09] like oh who would you like to
+[43:10] collaborate with I feel like I'm so
+[43:12] spoiled and I've I've been so blessed to
+[43:15] play with all these musicians I love
+[43:17] then I just say nobody you know whatever
+[43:20] comes I'm happy with Wow yeah well
+[43:23] that's cool though that's great man
+[43:25] that's means you're fulfilled you know
+[43:27] you're you're you're doing what you want
+[43:30] to do like you're ready told whoever
+[43:32] let's do it yeah if you wanted to make a
+[43:35] record job be there you know that's what
+[43:37] I'm saying well lucky for you I'm
+[43:39] totally talentless in the music
+[43:41] department so it's not gonna happen but
+[43:43] now you're such a talent man I love like
+[43:45] when you and Dominic Cruz are
+[43:46] commentating together doesn't get any
+[43:48] better
+[43:48] yeah I love Dom he's awesome man he beat
+[43:51] the [ __ ] out of me a couple times why
+[43:54] did you let him well because he you know
+[43:56] we used to sponsor him a little bit like
+[43:59] we're famous like you know he used to
+[44:00] walk out and famous stuff like when UFC
+[44:02] wasn't they didn't have rebut gear and
+[44:04] he would come down and train because I
+[44:06] would train with this one guy Josh over
+[44:08] here in Woodland Hills and he said
+[44:10] travel I'm gonna be in town I'm gonna
+[44:11] come train with you okay cool
+[44:13] little did I know it'd be Dom tossing me
+[44:15] around and Mike
+[44:16] oh my gosh man it was so difficult but
+[44:20] does he make you roll with them well now
+[44:22] I'd be he'd be like try to sleep me I
+[44:24] try to knock me out today so I'm giving
+[44:27] my all and just using his defense and
+[44:30] you know when you when you actually
+[44:31] swing in the air and you're not landing
+[44:33] it actually more tiresome than when
+[44:34] you're hitting somebody so I'm swinging
+[44:36] in the air he's like on the side of me
+[44:38] all of a sudden like you know he's so
+[44:40] quick like with footwork and then I'm
+[44:42] wrestled to the ground and it's just a
+[44:44] wrap every time and he's so so talented
+[44:47] so yes but where I love preposterous
+[44:49] yeah he just has the most ridiculous
+[44:51] footwork his footwork is so unique to
+[44:54] him to everything he does he's got like
+[44:56] this weird herky-jerky little yeah he
+[44:58] does he's probably one of the most
+[45:00] unique MMA fighters ever I feel like a
+[45:02] lot of people have kind of borrowed from
+[45:04] his style for sure you know yeah for
+[45:06] sure not to say they didn't make it
+[45:08] their own but I feel like Dom was the
+[45:09] first one you saw you know kind of move
+[45:12] like unquestionably yeah and that's
+[45:13] because of his intelligence yes he
+[45:15] doesn't like getting hit he's like okay
+[45:17] I got to figure out a way to not get hit
+[45:18] so much like what's the best way to not
+[45:19] get hit he just just came up with this
+[45:22] very unorthodox way of moving he's a
+[45:24] real encyclopedia of information when
+[45:26] you start talking him about fighting
+[45:27] like he's I really enjoy doing
+[45:29] commentary with him because he's so
+[45:31] insightful he's so good at pointing out
+[45:34] little areas where he thinks people are
+[45:36] making mistakes or how to capitalize on
+[45:38] certain things that people are doing
+[45:39] yeah I've watched fights with him before
+[45:41] and he's and he gives a different
+[45:44] insight than what I'm seeing yeah yeah
+[45:46] yeah no he's great especially when it
+[45:48] comes to wrestling clinch work and you
+[45:50] know and even like weird striking
+[45:53] techniques I mean he's just he's so good
+[45:56] at befuddling people that he fights with
+[45:58] with movement and information like he's
+[46:01] giving them looks and they're they're
+[46:03] trying to set up and understand and
+[46:05] they're trying to set up and they don't
+[46:06] know what the [ __ ] he's doing then they
+[46:07] have to reset and they're trying again
+[46:09] and then he's giving him a different
+[46:10] look and yeah standing over here and
+[46:12] then he's in front he with his hands
+[46:13] down then he's not and yeah yeah that's
+[46:16] a trap he's great just [ __ ] up his
+[46:18] shoulder again man I know man I think he
+[46:21] trained so much I feel like he just you
+[46:23] know he's obsessive yeah yeah he's a
+[46:25] savage I mean he he got back from knee
+[46:29] surgery and
+[46:30] he went so hard that he gave himself
+[46:31] plantar fasciitis so he [ __ ] up the
+[46:34] bottom of his feet from running and
+[46:36] sprinting and doing all kinds of crazy
+[46:38] [ __ ] to get in shape and you know he got
+[46:40] over that and I mean he's had so many
+[46:43] different surgeries Nisar Israel have
+[46:45] you had that no I've never had planner
+[46:47] oh man I had it on a tour where I would
+[46:49] I'd get these I get these weird kind of
+[46:51] things where I have to do a certain
+[46:52] thing before I go onstage so one of the
+[46:55] things I did on a tour that was I don't
+[46:56] know is about a formal tour is run four
+[46:59] to five miles before the show hmm and by
+[47:02] that by the middle of that tour I'd
+[47:03] actually give him myself a stress
+[47:05] fracture in my foot well it was terrible
+[47:07] did you run on concrete not a treadmill
+[47:10] really yeah Wow well sometimes sometimes
+[47:14] when when there was no treadmill I just
+[47:16] run out in the street but I kind of get
+[47:18] like that where I just like I don't know
+[47:20] I get obsessive about stuff and I want
+[47:22] it I want to do it I I get to kind of I
+[47:25] throw myself all the way in well I like
+[47:27] what kind of running shoes do you run
+[47:28] with do you run with I was running like
+[47:30] honestly on that tour sometimes I'd run
+[47:32] in vans which is probably half of my
+[47:33] problem but you know it'd be so quick
+[47:35] like Oh an hour here to do this but yeah
+[47:39] that it wasn't fun though it was painful
+[47:42] yeah when you have overuse injuries
+[47:44] those are some of the hardest especially
+[47:46] your feet there's some of the hardest to
+[47:47] recover from because you have to walk
+[47:49] it's not like if you hurt your elbow you
+[47:51] can just not use it for a while yeah and
+[47:53] it'll eventually heal up but you need to
+[47:55] use your feet yeah yeah planners a rough
+[47:58] one man I know a lot of people that have
+[47:59] got that I've been very lucky I came
+[48:02] from martial arts background a lot of
+[48:03] kicking and stuff like that so my feet
+[48:06] are pretty strong from moving but I
+[48:07] found that running with minimalist shoes
+[48:10] on hills that made him even stronger
+[48:12] Yoga stronger like what those weird kind
+[48:15] of what are they called
+[48:17] Vibram FiveFingers shoes I wear those
+[48:19] and where there's another company called
+[48:20] vivo barefoot or where those I like
+[48:23] those a little bit better for running on
+[48:24] the hills because I'm running on a lot
+[48:26] of rocks and shed in the Vibrams they
+[48:28] would be great if everything was soft
+[48:30] dirt but I'm running on weird jagged
+[48:33] rocks and [ __ ] and it's just it hurts
+[48:35] your feet you got to be real careful
+[48:36] where you place your feet yeah but it
+[48:38] just forces your feet to work as they're
+[48:41] supposed to as opposed to like a big
+[48:44] sheeni running shoe you know I think
+[48:46] cushiony running shoe feels good it
+[48:48] feels good to run on it because you get
+[48:50] all this cushion it's not so jarring but
+[48:52] your body really you really should run I
+[48:55] think personally unless you're a runner
+[48:57] you should probably run less with a
+[48:59] minimalist shoe then you should run like
+[49:02] because it's more comfortable to run
+[49:04] with a big fat cushion I think you
+[49:05] ultimately give yourself probably more
+[49:08] injuries that way yeah but you can get
+[49:10] injuries from those minimalist shoes too
+[49:12] if you don't pay close attention you try
+[49:15] too hard too quick yeah your foots not
+[49:17] conditioned for it my feet are terrible
+[49:19] - man I had what was called a Liz Frank
+[49:21] fracture when ever heard of that
+[49:22] it's basically your foot breaks in half
+[49:25] like all your all your tenants your
+[49:27] ligaments and your bones how the [ __ ]
+[49:30] did you do that so I was high as a kite
+[49:32] and it was in Australia and I was
+[49:34] running to the bus and I had like two
+[49:36] huge bags that were like probably like I
+[49:38] probably 40 pounds on my back
+[49:39] and I was just trying to get to the bus
+[49:41] to get to the next show or whatever and
+[49:43] it was the the stupidest thing ever but
+[49:46] it was a little like you know the little
+[49:47] cracks in the sidewalk was up higher and
+[49:49] I didn't see and I fell with all that
+[49:51] weight on me and I'm in the bus and I'm
+[49:54] starting to think wow this is really bad
+[49:56] in my tour manager is like a man just
+[49:57] get the blood flow and try walking on it
+[49:59] and I'm trying to just suck it up and
+[50:02] I'm walking in the airport and I'm like
+[50:03] almost like tearing like I'm [ __ ]
+[50:06] hurting so bad I was like man I think I
+[50:09] need to get an x-ray or like an MRI this
+[50:11] isn't good so I play like the next two
+[50:14] shows with my other foot I get an x-ray
+[50:17] they say I've broken my foot in half I
+[50:19] need surgery so I I think I ended up
+[50:23] doing a couple weeks of the tour which I
+[50:25] shouldn't have I should have gone and
+[50:26] done that surgery but I played it with
+[50:28] my other foot and then I got home I did
+[50:30] the surgery and I was like six months on
+[50:33] crutches and wow just recovering it was
+[50:36] terrible six months on he watches and
+[50:38] then I feel like I wasn't healing that
+[50:40] great cuz I was taking so many
+[50:42] painkillers and everything it was
+[50:44] slowing down the process
+[50:45] hmmm which I don't know if you've heard
+[50:46] of but that it really like my bones
+[50:49] became super brittle from pink from
+[50:51] painkillers what what painkillers Norco
+[50:54] yeah yeah
+[50:56] huh yeah but I would imagine the pain
+[50:59] must have been [ __ ] excruciating
+[51:01] snapping your foot in half oh it was so
+[51:03] painful yeah when it first happened it's
+[51:05] something else for pain medication after
+[51:07] you got off of that stuff just smoked
+[51:09] weed yeah yeah said enough yeah I'm
+[51:12] pretty good with pain doesn't really bug
+[51:15] me
+[51:15] what about edibles I haven't really done
+[51:19] it you don't [ __ ] with edibles really I
+[51:22] haven't had anything for 10 years
+[51:25] nothing nothing zero no alcohol no weed
+[51:28] no nothing damn yeah ten year which was
+[51:31] a big well after my accident as well I
+[51:33] was fed you know four months in a
+[51:36] hospital being fed morphine every day
+[51:38] for four months and then being on all
+[51:41] these bipolar meds and everything else I
+[51:43] honestly didn't want to put anything in
+[51:45] my body when I got out I didn't even
+[51:46] take painkillers when I got home now
+[51:49] what kind of bipolar meds they put you
+[51:51] on I don't even remember I was on like
+[51:53] four or five just bipolar and I mean I
+[51:56] had like I had so many I probably like
+[51:59] twelve medications I got sent home with
+[52:01] and I did it for about a week or two and
+[52:03] then I wouldn't see my doctor I'd
+[52:05] actually overheard one of my friends
+[52:06] talking who was like a brother to me and
+[52:09] I had heard him talking to someone else
+[52:11] he was like you know like Travis seems a
+[52:14] little different you know he seems a
+[52:16] little bit slow or something and it and
+[52:19] I had overheard him he didn't know I
+[52:20] overheard him but I was these meds I had
+[52:24] been telling my dog feels like I just
+[52:25] don't feel like me I feel I don't know I
+[52:27] feel weird and I just don't feel like
+[52:29] myself so I just flushed him down the
+[52:31] toilet one day next week I came back to
+[52:33] see him he's like how you doing I said
+[52:34] good I'm off all those meds you told me
+[52:37] I'd be on for the rest of my life
+[52:38] they're like oh dude from what you've
+[52:41] been through like you you it's okay to
+[52:43] be on something like that and I was like
+[52:44] yeah I'm doing fine though like I don't
+[52:47] need those you know he said I wanted to
+[52:49] put you on because of the plane crash
+[52:50] yeah they're like don't shame yourself
+[52:52] you know by giving yourself a hard time
+[52:55] that you have to take these pills and I
+[52:57] said well you know I honestly don't feel
+[52:59] like they're doing what they're supposed
+[53:00] to for me and they actually having like
+[53:02] a negative effect on me so I don't I
+[53:04] really don't want to take them you know
+[53:05] they also told me I'd never run again
+[53:07] I'd never do this I never do that
+[53:08] so I think I just got to the point where
+[53:10] I was like let me see how many things I
+[53:13] can prove otherwise that they've told me
+[53:15] you know once I stopped taking the pills
+[53:18] Jesus so they put you on bipolar
+[53:20] medication because of a traumatic crash
+[53:22] yeah that seems odd to me I mean I'm not
+[53:25] a doctor obviously but well I was kind
+[53:28] of crazy you know I was like suicidal
+[53:31] when I was in the hospital I was on so
+[53:34] many drugs I couldn't even I didn't even
+[53:36] know my friends had passed away I didn't
+[53:38] even know the two pilots had passed away
+[53:41] I didn't remember anything
+[53:42] I kept thinking like everyone was in the
+[53:44] hospital including the two pilots
+[53:47] including my two best friends and a.m. I
+[53:49] thought everyone was just in different
+[53:51] rooms till about two weeks before I left
+[53:53] and then I went crazy then it was like
+[53:56] they had a you know 5150 case on their
+[54:00] hands you know I wasn't I wasn't in a
+[54:02] good place so yeah then I did I did a
+[54:05] lot of like post-traumatic like therapy
+[54:07] when I was in the hospital - kind of
+[54:09] like calm things down once I got through
+[54:12] all my surgeries and then yeah I mean
+[54:15] over time it was it was cool but or it
+[54:18] was never cool but I started to feel
+[54:19] better you know but yeah I think it was
+[54:23] cuz I was so crazy at the time but
+[54:26] that's it's interesting that that I
+[54:28] would think that bipolar medication
+[54:30] would be something that you would give
+[54:32] someone who has like a condition that
+[54:36] just is sort of preed they're
+[54:38] predisposed to it yeah I don't know
+[54:40] anything about bipolar but I would think
+[54:43] that that's something you just have you
+[54:45] know it's like I have a mental condition
+[54:47] I wouldn't think that it would be
+[54:49] something that they would give you to
+[54:50] overcome a traumatic incident yeah I
+[54:53] think they were afraid I was gonna be I
+[54:55] had like a mental condition after
+[54:57] everything happened you know I think
+[54:58] they think like maybe because you're an
+[55:00] artist that you're probably a little
+[55:01] crazy anyway possibly yeah I mean yeah I
+[55:04] think but I was a mess too like you know
+[55:06] like I had done I'd smoke so much weed
+[55:09] you know every day and I'd taken so many
+[55:11] pills and and I would self-medicate
+[55:14] quite a bit that I woke up probably out
+[55:16] of 11 of my 30 surgeries I had in the
+[55:18] Burn Center I woke up swinging on
+[55:20] doctors
+[55:21] so because I would wake up and I would
+[55:24] just I'd be opened up and I would just
+[55:26] go crazy Jesus Christ so trying to get
+[55:29] off the table yeah I would just try to
+[55:31] get off the table I don't even think I
+[55:32] really knew what was going on
+[55:34] I just wasn't they couldn't give me
+[55:36] enough medication to knock me out
+[55:38] because I had been self-medicating for
+[55:39] so long and abusing meds for so long
+[55:42] Wow so you would get up from anesthesia
+[55:44] you just wake up in the middle of
+[55:47] anesthesia yeah so yeah that was crying
+[55:52] that was a problem how did you clean up
+[55:57] I think after there was I think the last
+[56:00] time I swung on a doctor they were kind
+[56:02] of like you you're not gonna you can't
+[56:04] be here no more and then I was like wow
+[56:07] well I need X amount of more surgeries
+[56:09] and I I really was just in it fighting
+[56:12] demons you know I just figured out like
+[56:14] my two best friends had passed away and
+[56:17] the pilots had passed away and I was
+[56:18] just like in an ugly place and you know
+[56:22] my my kids couldn't come visit me
+[56:23] because 65% of my body was burnt so I
+[56:26] couldn't be around people so I was just
+[56:28] in it man and then and then I just I
+[56:31] don't know I turned a corner and then I
+[56:34] was like a team player and I don't think
+[56:36] I was on as many meds most of my
+[56:38] surgeries were over and just learning
+[56:40] how to walk again
+[56:42] being able to take a shower by myself
+[56:44] again all that stuff man I think that
+[56:46] was just those are the good points that
+[56:48] helped me turn the corner and I don't
+[56:50] know I just had more strength you know
+[56:51] you know so wow so you just just turned
+[56:56] a corner in your mind and just sort of
+[56:57] accepted it and yeah same with drugs
+[57:00] like I didn't never do rehab or anything
+[57:01] I think it was mainly my kids and just
+[57:04] second life the second chance at life
+[57:07] was enough for me I was like I don't I
+[57:09] never want to do any of that stuff again
+[57:10] you know that's cool so once you get a
+[57:13] certain amount of distance between you
+[57:15] and those days does it seem like like it
+[57:18] wasn't even real it wasn't you doing
+[57:20] those things yeah you look back and
+[57:22] you're just like yeah like I still
+[57:24] talked to those doctors to this day like
+[57:26] dr. Grossman he's he's he's so awesome
+[57:29] and he basically saved my life you know
+[57:32] but I still talk to him he lives out
+[57:35] here in the valley
+[57:35] yes Grossman Burn Center and I go
+[57:38] without Christmas and and see burn you
+[57:41] know burn victims that are over there in
+[57:42] the in the burn center and help out any
+[57:44] way I can but yeah that's great man
+[57:46] yeah really cool yeah many of my friends
+[57:50] that I know that I had real bad drug
+[57:52] problems and then now are off drugs
+[57:54] they'd look back and they go what I know
+[57:57] what the [ __ ] was I doing like how did I
+[57:59] do how was that me yeah it's interesting
+[58:01] how that happens in your life or you
+[58:03] have these new chapters in your life and
+[58:05] and then sometimes it could just be
+[58:06] something that happened like two weeks
+[58:08] ago and you're like who the [ __ ] was
+[58:11] that guy two weeks ago I'm not even him
+[58:12] anymore yeah you know like you you could
+[58:14] sometimes people make these abrupt turns
+[58:17] in their life and then they go yeah I'm
+[58:19] never going back and you go well we'll
+[58:21] see and then you look 10 years later
+[58:23] like wow you were right you never went
+[58:24] back yeah yeah and I think like I still
+[58:27] have have you ever heard of what's
+[58:28] called like user dreams no we're like I
+[58:31] think I've [ __ ] up and I'm smoking
+[58:32] weed again like oh my god how am I gonna
+[58:35] stop cuz I'm not I love smoking so much
+[58:38] you know or whatever your vice was you
+[58:40] know if it was like whatever was yeah
+[58:43] you're just like you wake up and you
+[58:44] think you're doing it again and then you
+[58:46] realize nom I'm all good I just have
+[58:48] dreams like that where how to go back to
+[58:49] high school really I just have dreams
+[58:51] for years man why'd you hate high school
+[58:53] [ __ ] hey Monty I don't think anyone
+[58:56] likes it yes you're like you know soon
+[58:59] to be a professor [ __ ] doctor or
+[59:01] something but well I just had no idea
+[59:03] what I wanted to do for a living and I
+[59:05] was just like being trapped in a
+[59:07] classroom constantly was excruciating
+[59:10] yeah I must have had I mean I probably
+[59:12] do have like some crazy form of a DD I
+[59:15] don't know I never been diagnosed into a
+[59:17] shrink
+[59:17] but if I did I mean I'm sure they'd
+[59:19] probably try to put me on something
+[59:21] right if I tried to tell him what's
+[59:22] going on in my head all the time they'd
+[59:24] be like Jesus sit down hold on take
+[59:26] these take these whatever you do it is
+[59:29] bad but when I was in high school I
+[59:31] [ __ ] hated it and I barely got by and
+[59:33] then when I got out of high school I
+[59:35] would have these dreams where I would
+[59:37] wake up in the middle of the night and I
+[59:38] didn't have enough credits to graduate
+[59:40] and have to go back and then I was
+[59:42] sitting there in my bed but before I
+[59:44] woke up trying to decide whether or not
+[59:46] I was just gonna [ __ ] drop out
+[59:49] and not graduate from high school not
+[59:51] have a high school diploma or go back
+[59:54] and do another [ __ ] year of hell and
+[59:57] then with my guts would turn then I'd
+[59:59] wake up and oh my god I graduated I
+[01:00:01] graduated yeah yeah it was the worst I
+[01:00:04] was the same way man I just like just
+[01:00:06] barely got by high school did you go to
+[01:00:08] school here yeah well I grew up in like
+[01:00:10] Fontana okay
+[01:00:12] Riverside Ronny yet fontucky about the
+[01:00:15] double dose more Thai out there yeah
+[01:00:17] yeah so people like to fight in Fontana
+[01:00:21] people like to fight everywhere yeah now
+[01:00:24] you do fighter play football
+[01:00:26] hit Fontana yeah yeah yep yeah I was the
+[01:00:31] same way
+[01:00:32] just just skated by high school and then
+[01:00:34] I remember I didn't even want to walk I
+[01:00:36] [ __ ] hated it so much I actually rode
+[01:00:38] my skateboard with my friends that were
+[01:00:40] like much older than me yeah I go
+[01:00:41] skateboarding with every day and we were
+[01:00:43] skateboarding by the high school as
+[01:00:44] everyone walked and got their diploma
+[01:00:46] I was just did you get your diploma that
+[01:00:49] yeah they sent it to me but me too I
+[01:00:50] didn't want to [ __ ] be there no I
+[01:00:52] didn't know I didn't go to my graduation
+[01:00:53] I'm like I'm gone yeah like this is I
+[01:00:56] once I got through I'm like you don't
+[01:00:58] have me anymore I can be free it took me
+[01:01:02] a while to figure out what the [ __ ] to
+[01:01:03] do next yeah I would sit there and they
+[01:01:05] would be like so what do you want to do
+[01:01:06] like the counselors and I was like I
+[01:01:08] just want to play drums in a band really
+[01:01:09] and they'd be like well that's not an
+[01:01:11] option like require college are you
+[01:01:13] going to talk to me like I was like just
+[01:01:17] insane isn't that crazy that there's so
+[01:01:19] many bands and there's so many drummers
+[01:01:21] why is that not an option
+[01:01:22] yeah why is it not an option it'd be
+[01:01:24] better if they just said well you know
+[01:01:26] like I don't know if they motivated you
+[01:01:28] to actually do what you're passionate
+[01:01:29] about instead of just being well that's
+[01:01:32] not gonna happen so what do you want to
+[01:01:33] do so many [ __ ] people that probably
+[01:01:36] wanted to be drummers and just never got
+[01:01:38] a push and never never you know yeah I
+[01:01:41] never made it through but then there's
+[01:01:43] the other argument that if you really
+[01:01:45] want you'll find a way yeah you got to
+[01:01:48] do it I mean my dad used to tell me the
+[01:01:49] same thing he'd be like you got to have
+[01:01:53] a plan B not and I'd be like well if I
+[01:01:57] have a plan B I'm not gonna try that
+[01:01:58] hard yeah I started thinking in my head
+[01:02:00] and then
+[01:02:02] that's when I just said nah [ __ ] that
+[01:02:04] like I'm it's only this no matter if I'm
+[01:02:07] rich or poor whatever whatever the
+[01:02:09] circumstances this is what I'm doing
+[01:02:12] like I don't give a [ __ ] what the
+[01:02:13] outcome is I think that's the right
+[01:02:15] mindset yeah I don't think people get by
+[01:02:18] that well like when I was uh just
+[01:02:20] starting to do stand-up there was a lot
+[01:02:22] of guys who had full-time jobs and they
+[01:02:23] got degrees and you know they would work
+[01:02:26] there full-time job and then they would
+[01:02:28] just do stand-up like a couple nights a
+[01:02:29] week they never made it yeah is the
+[01:02:32] obsessed guys and women the people that
+[01:02:35] were just like I this is my [ __ ] life
+[01:02:37] this is what I do I'm gonna do this yeah
+[01:02:40] those are the ones that do it the no
+[01:02:41] safety net people are the ones that made
+[01:02:43] it yeah I mean it's gonna [ __ ] happen
+[01:02:45] you just have to you have to stick with
+[01:02:48] it yeah I feel like the people who
+[01:02:50] really stick with it and give it like
+[01:02:52] 110 percent your time will come it's
+[01:02:54] however big or small it is something
+[01:02:56] will happen you know yeah yeah if you
+[01:02:59] figure it out and keep improving and
+[01:03:01] keep learning and learn from your
+[01:03:02] mistakes and learn from your setbacks
+[01:03:04] and and keep trying to push and get
+[01:03:06] better and improve if you do all those
+[01:03:09] things is as hopeless and helpless as it
+[01:03:12] seems if you continue to improve you've
+[01:03:14] got to get to a better place you got to
+[01:03:16] get better and one day you'll be
+[01:03:17] undeniable and if you don't and if you
+[01:03:21] just fall back on that safety net you're
+[01:03:23] always gonna wonder yeah you know yours
+[01:03:26] gonna look at Travis barkingham or the
+[01:03:28] drums I'm going [ __ ] that could have
+[01:03:30] been me dude I almost did it I actually
+[01:03:32] at one point my pops and my pops is
+[01:03:34] awesome but um he's like Vietnam vet and
+[01:03:37] you know wrote him Harley his whole life
+[01:03:39] and he just basically said to me he's
+[01:03:41] like yo you got a you either got to
+[01:03:42] start paying rent at the house cuz you
+[01:03:44] you know you're not in high school no
+[01:03:45] more or and get like a 60 hour a week
+[01:03:48] job like a real job or you need to go
+[01:03:52] you know go [ __ ] and play drums but
+[01:03:53] you're not gonna do it here in my garage
+[01:03:54] so I was like okay and it was probably
+[01:03:57] the best thing that was ever said to me
+[01:03:58] you know as harsh as it was or whatever
+[01:04:00] and then I had actually caved in and I
+[01:04:04] just told my my friend no I was like you
+[01:04:06] know what I think I'm just gonna I'm
+[01:04:08] gonna get this [ __ ] job because I
+[01:04:09] just somehow got a job but made you know
+[01:04:11] in a warehouse it was like Target
+[01:04:13] warehouse making pretty good money
+[01:04:14] compared to what I was
+[01:04:15] at the time and and he hit me the next
+[01:04:19] day and he's like I think you're making
+[01:04:20] a big mistake
+[01:04:21] I think you're very [ __ ] talented and
+[01:04:23] I think you'll regret this and you can
+[01:04:24] get this [ __ ] job any any time down
+[01:04:27] the line come live with me on you know
+[01:04:29] stay at my house you could sleep on the
+[01:04:30] floor or the couch and let's play in
+[01:04:32] this [ __ ] band and do it and I did it
+[01:04:35] you know I was like a trash man in
+[01:04:36] Laguna Beach lived in like this studio
+[01:04:39] apartment with a couple other guys and I
+[01:04:42] just [ __ ] took off like I had a like
+[01:04:44] I mean it was like humility too you know
+[01:04:46] there was like playing bar after bar and
+[01:04:48] you know you know but but I was eating I
+[01:04:51] was eating I was you know I was
+[01:04:53] skateboarding every day and I was living
+[01:04:54] at the beach playing in a band with my
+[01:04:56] friends so for me it I had already made
+[01:04:58] it those are the best stories yeah
+[01:05:01] they're the best stories and I think
+[01:05:02] back even to this day I go to Laguna
+[01:05:04] sometimes I'm like wow that was kind of
+[01:05:06] one of the best moments of my life
+[01:05:07] besides my children being born like poor
+[01:05:10] no money but like happiest [ __ ] I can't
+[01:05:14] even think of another time I was that
+[01:05:16] happy you know yeah cool people the the
+[01:05:19] only pressure is the pressure of trying
+[01:05:21] to succeed is not the pressure of
+[01:05:23] already succeeding and the overwhelming
+[01:05:25] pressure that you must experience now
+[01:05:27] yeah those are great stories men the
+[01:05:31] stories of like where you didn't know if
+[01:05:33] it was gonna work yeah you clue those
+[01:05:36] stories right now some kids are
+[01:05:38] listening to those stories right now
+[01:05:40] listening you say this like [ __ ] man I'm
+[01:05:43] gonna do it I'm gonna go for it like who
+[01:05:45] knows how many rock stars you're making
+[01:05:46] right now just saying this yeah because
+[01:05:48] a lot of them are teeter-tottering yeah
+[01:05:50] not gonna do it am I not gonna do it
+[01:05:51] even I mean I was at the time no and you
+[01:05:53] just have to you know don't worry about
+[01:05:56] being cool or being [ __ ] rich or
+[01:05:58] having money just be passionate about
+[01:06:01] what you're passionate about and [ __ ]
+[01:06:03] dedicate a hundred percent you know yeah
+[01:06:05] there's those moments man when you're
+[01:06:06] first starting out anything where it's
+[01:06:08] not sure yeah it's not a it's not it's
+[01:06:12] not a definite thing you were in this
+[01:06:13] weird limbo space like man am I gonna be
+[01:06:16] a loser my whole life like what's gonna
+[01:06:18] happen to me and those moments man when
+[01:06:20] you look back and you realize you could
+[01:06:23] have quit but you kept going you figured
+[01:06:25] it out you sucked it up yeah
+[01:06:27] you worked your way through it you
+[01:06:29] improved you kept moving yep yeah that's
+[01:06:32] that's life man
+[01:06:33] yeah that's what defines you man yeah it
+[01:06:36] really does I just love those [ __ ]
+[01:06:38] stories I can never get enough of them
+[01:06:40] man yeah the dirty grimy and then
+[01:06:43] finally make it story yeah dude you're
+[01:06:48] running out of space to tattoo I'm gonna
+[01:06:50] tell you right now I'm actually getting
+[01:06:51] tattoos on top of tattoos that's
+[01:06:52] outrageous yeah
+[01:06:54] I just got this lj4 xxx I'm gonna get a
+[01:06:58] I'm working on some new ones I've
+[01:07:01] decided to go back in you kind of like
+[01:07:04] remix in him at this point you know like
+[01:07:05] getting tattoos on tattoos have you ever
+[01:07:07] gotten lasered yeah once I had like a
+[01:07:11] new wife and I divorced my ex-wife and
+[01:07:14] she wasn't really stoked on the
+[01:07:16] ex-wife's name on me yeah sounds like a
+[01:07:18] problem yes so I lasered it cuz it was
+[01:07:20] right on my neck and she always had to
+[01:07:22] see it but that's the only time I've
+[01:07:25] ever done it there's nothing on me I
+[01:07:27] really want to get rid of her I'm like
+[01:07:28] all that it's all a story to me it all
+[01:07:30] tells the story it's like a moment in
+[01:07:32] time and I got it for a reason but I was
+[01:07:34] trying to be cool and you know I mean
+[01:07:36] trying to be respectful and made her
+[01:07:38] happy at the time that makes sense yeah
+[01:07:39] I mean it was amazing she hung in there
+[01:07:41] all the way to being married with
+[01:07:42] another chick's name on your neck yeah
+[01:07:44] that's a great woman true in that regard
+[01:07:49] yeah yeah but yeah I love tattoos man
+[01:07:53] they're addicting yeah I love him too
+[01:07:55] once I figured out they didn't hurt at
+[01:07:57] the age of 15 it was on I didn't yeah
+[01:07:59] it's like what people tell you like oh
+[01:08:01] it's so painful yeah and then you get
+[01:08:03] when you're like wait a minute
+[01:08:04] it's not so bad this is like it's kind
+[01:08:06] of like a a slight burn yeah it's like
+[01:08:09] kind of therapeutic too I fell asleep I
+[01:08:14] was getting tattooed same same when I
+[01:08:17] did my back piece I fell asleep and I
+[01:08:19] had two artists working on me at the
+[01:08:21] same time oh wow
+[01:08:22] just because I [ __ ] hate wasting time
+[01:08:24] here so they yeah they did my back
+[01:08:26] together they did my head together to
+[01:08:28] hear that heads impressive let me see
+[01:08:30] the head let me see what that looks like
+[01:08:32] when did you get that done I did in my
+[01:08:35] head like I don't know six years ago Wow
+[01:08:39] yeah yeah I started I
+[01:08:41] a piece on the side of my right that mr.
+[01:08:43] cartoon did back back in the day I love
+[01:08:45] that guy's work yeah cartoonist said
+[01:08:47] he's amazing he's got great [ __ ] he is a
+[01:08:50] legend yeah he's a legend even outside
+[01:08:52] of tattooing like lowrider culture yeah
+[01:08:54] he's he's one of the illest but um yeah
+[01:08:57] he did that and then that kind of set it
+[01:08:59] off I always had like praying hands on
+[01:09:01] the side of my head and then I shaved my
+[01:09:03] head and I've never grown my hair out
+[01:09:04] since cuz I'm like [ __ ] it I it's
+[01:09:07] permanent haircut you know what is up
+[01:09:12] there it's hard to see my little shine I
+[01:09:14] have like oh wow I think I have like a
+[01:09:19] rose you think what's on my head I have
+[01:09:25] like a transplants gas mask on the back
+[01:09:27] of my head I have one life one chance
+[01:09:30] yeah and then like some writing Wow
+[01:09:34] now when you got burned did it affect
+[01:09:37] your tattoos did you have to tattoo over
+[01:09:38] it yeah so I lost I lost all of my
+[01:09:42] tattoos on my legs Wow yes I lost I lost
+[01:09:45] my first tattoo ever which was a
+[01:09:47] d'agnasti tattoo this hardcore band punk
+[01:09:50] man that I loved forever
+[01:09:51] and a bones tattoo which was my nickname
+[01:09:53] growing up but I lost everything on my
+[01:09:56] legs so then they do like they do what's
+[01:09:59] called that grafting so they owe and I
+[01:10:02] lost some tattoos with my back so they
+[01:10:03] take it's like a cheese grater and they
+[01:10:06] grade all of your skin off your back and
+[01:10:09] my thighs and then they staple it to you
+[01:10:12] with pig cadaver whoa and they wait for
+[01:10:14] for you to start healing so yeah so I
+[01:10:19] lost a lot of tattoos and then I I did I
+[01:10:22] like on my thighs you can't really see I
+[01:10:23] did I did memorials for for little
+[01:10:26] Christian djm who who all passed away in
+[01:10:30] the accident so I put them on my legs
+[01:10:32] over the graph so you can't really see
+[01:10:35] it but yeah I mean I I got out pretty
+[01:10:38] well man let me you can kind of see it
+[01:10:39] on my hand my hand you can see it's
+[01:10:41] discolored and stuff but for having
+[01:10:44] almost 70 percent of my body burnt like
+[01:10:46] you can't really tell that's amazing
+[01:10:48] yeah you can't really tell at all
+[01:10:49] because you're so tattooed up that uh
+[01:10:51] the pain of healing burns is supposed to
+[01:10:55] be
+[01:10:56] it's the [ __ ] worst thing ever
+[01:10:58] well for me too I mean I don't think you
+[01:11:01] guys ever think about being burnt I know
+[01:11:02] I didn't right I'll just be like I don't
+[01:11:05] know I just never think about fire until
+[01:11:08] you're on fire and then you're like oh
+[01:11:10] [ __ ] and then and then the you know the
+[01:11:16] treatments afterwards to like do
+[01:11:18] everything you know like like they would
+[01:11:20] put me in this big pan that was
+[01:11:22] literally about as big as this table
+[01:11:23] with different people all around you and
+[01:11:26] they would scrape all my buns with a
+[01:11:28] metal brush to get rid of all the
+[01:11:30] infection cuz I had I basically when I
+[01:11:32] when I jumped through the emergency exit
+[01:11:35] when I opened the emergency exit before
+[01:11:36] the plane blew up I was in such a hurry
+[01:11:39] to get out of the plane and exit the
+[01:11:41] plane I jumped right into the jet which
+[01:11:44] is full of fuel so my whole body lit up
+[01:11:48] you know so I had jet fuel just in my
+[01:11:52] whole body like I burped jet fuel for
+[01:11:54] almost like three months so they had
+[01:11:57] like that was the main thing to get rid
+[01:11:58] of the infection is they scrub you with
+[01:12:00] a metal brush to get rid of all of it
+[01:12:02] and all of the dead skin and then and
+[01:12:05] then I did about 30 surgeries to to
+[01:12:08] repair everything like skin graft
+[01:12:09] surgeries they saved my foot because at
+[01:12:11] one point they were gonna amputate my
+[01:12:13] right foot oh yeah it was wild I have
+[01:12:16] pictures fat burnt that they're gonna
+[01:12:18] have to amputate it my right foot almost
+[01:12:20] didn't make it was it because the way it
+[01:12:22] was was it was necrosis or like what was
+[01:12:24] going on that they were gonna amputate
+[01:12:26] it I think cuz that was the thing that
+[01:12:28] was most soaked was was my shoes and
+[01:12:31] socks I jumped into the Jets you know
+[01:12:34] and I had done like I had exited the
+[01:12:38] plane I started running I'd started like
+[01:12:40] ripping off my clothes just that's what
+[01:12:43] my instinct told me just get rid of
+[01:12:45] everything but little did I know I would
+[01:12:47] still be on fire cuz the jet fuel was
+[01:12:49] you know soaked in it so I'm actually
+[01:12:52] running towards a highway highways right
+[01:12:55] on the side of me and I just hear some
+[01:12:57] guy yell like stop drop and roll
+[01:12:59] and it just like I heard it out of all
+[01:13:01] this chaos of every sirens and
+[01:13:03] everything and I stop drop and rolled
+[01:13:05] and the only thing that was still on
+[01:13:07] fire was my feet and
+[01:13:09] came and patted him out so I think they
+[01:13:12] were on fire the longest - so still like
+[01:13:15] my I think my right foot is probably
+[01:13:16] like over 50% of its a graft Wow yeah
+[01:13:20] it's wild but um yeah that was like I
+[01:13:23] never like I said I never even thought
+[01:13:25] about it's not something you think about
+[01:13:27] until it happens to you but being burnt
+[01:13:29] is like it's it's horrific you know were
+[01:13:33] you affected by the recent fires out
+[01:13:35] here it came about a couple hundred
+[01:13:37] yards from one of my houses oh wow
+[01:13:39] but I was in Vegas I was actually
+[01:13:41] playing a show we left that morning and
+[01:13:44] then we got phone call saying you had to
+[01:13:46] evacuate but we love you thank God you
+[01:13:48] had the kids my dogs with me my
+[01:13:52] housekeeper was at the house she was
+[01:13:53] able to get the rest of our dogs out and
+[01:13:56] yeah we were as long as I had them there
+[01:13:59] with me you know I was like everything
+[01:14:00] else is replaceable it's yeah whatever
+[01:14:02] but yeah that was sketchy I mean you saw
+[01:14:05] obviously you live very valuated yeah we
+[01:14:09] got evacuated
+[01:14:10] well we evacuate ourselves before they
+[01:14:12] had a mandatory at 2:00 in the morning I
+[01:14:14] came back from the comedy store my wife
+[01:14:17] and I were looking out the window and
+[01:14:18] the flames are coming over the hill and
+[01:14:20] I said no one's gonna save us here I go
+[01:14:22] you know we have to figure out what the
+[01:14:24] [ __ ] we're gonna do and she's like I
+[01:14:25] think we should go and that's that all
+[01:14:27] right I think you're right and we just
+[01:14:29] got a hotel room and we just bailed yeah
+[01:14:31] and I just grabbed I literally grabbed
+[01:14:33] my laptop and I think that's it and some
+[01:14:36] some clothes and then the kids are a
+[01:14:38] little freaked out but I said look just
+[01:14:40] look we're here yeah all right
+[01:14:43] like we could buy more [ __ ] yeah like
+[01:14:45] the dogs fine we're fine
+[01:14:46] that's how I was - I was like let it
+[01:14:49] burn yeah you know I mean I don't want
+[01:14:51] it to burn obviously but rather than you
+[01:14:53] being hurt like [ __ ] man this is this is
+[01:14:56] it's an inconvenience when you're when
+[01:14:59] you lose your house yes it's a horrific
+[01:15:01] tragedy when you lose your life you know
+[01:15:03] we're not we're gonna get the [ __ ] out
+[01:15:05] of here yeah and so they were freaked
+[01:15:06] out but within a day or two I mean we
+[01:15:09] stayed in the hotel for a week but
+[01:15:10] within a day or two they were they were
+[01:15:12] cool were laughing about it same we did
+[01:15:14] the same thing that came came home but
+[01:15:15] not really home you know just a hotel
+[01:15:17] for a week but yeah I felt kind of
+[01:15:20] helped us like you couldn't do much you
+[01:15:22] know
+[01:15:22] it's not like I could sit there and and
+[01:15:24] put out the fire myself you know they
+[01:15:26] wouldn't even let us in our community
+[01:15:27] yeah same here crazy for people that
+[01:15:30] weren't around here they don't know how
+[01:15:33] crazy it was but the sky was filled with
+[01:15:36] smoke everywhere you looked was smoke I
+[01:15:38] mean all of LA was filled with smoke it
+[01:15:40] was I've never we we stayed in Beverly
+[01:15:42] Hills at the Waldorf and you look out
+[01:15:44] the balcony window and it's just [ __ ]
+[01:15:46] gray just smoke everywhere yeah I've
+[01:15:49] never seen fires like that before never
+[01:15:51] in my life neither and I always see
+[01:15:52] we're on high alert yeah you not see it
+[01:15:54] like my kids are at school over in
+[01:15:57] Malibu were really close to there and I
+[01:15:58] always see high alert but nothing's ever
+[01:16:01] really happened you know there's been
+[01:16:03] like small fires but that was horrific
+[01:16:05] that was just it looked like Hiroshima
+[01:16:07] yeah in our neighborhood like you know
+[01:16:09] airplanes flying really low dropping
+[01:16:11] like fire retardant and yeah it was it
+[01:16:14] was crazy bill burr flies helicopters
+[01:16:16] he's got his helicopter license and we
+[01:16:19] took a flight around Malibu around Point
+[01:16:21] Dume and you go over there and you see
+[01:16:24] these massive estates just burnt to the
+[01:16:27] ground these gorgeous houses with the
+[01:16:29] perfect view on the bluff overlooking
+[01:16:32] the ocean gone huge Lots you know 20
+[01:16:36] million dollar house is gone just burnt
+[01:16:38] to the ground and there's so many of
+[01:16:40] them and then like one house standing
+[01:16:41] there yeah one house out of just random
+[01:16:44] it's how it wasn't our neighborhood my
+[01:16:45] house caught fire but nothing near it
+[01:16:47] caught fire it's weird yeah some [ __ ]
+[01:16:50] will fly through the air land on
+[01:16:51] someone's house and if you have like
+[01:16:53] pine needles or something on your roof
+[01:16:55] or a flammable roof yeah you know just
+[01:16:58] catches catches on fire
+[01:17:00] was it a campfire it started it's called
+[01:17:03] campfire I don't think it was a campfire
+[01:17:06] that was the name of the fire I don't
+[01:17:08] think I don't I don't know what the [ __ ]
+[01:17:10] the cause of that fire was Jamie see if
+[01:17:12] you can find that out do you know what
+[01:17:13] it is no I think they've been trying to
+[01:17:15] blame or blame has been put on like
+[01:17:16] different utility companies or whatnot
+[01:17:18] and they're not they're not taking the
+[01:17:20] blame or they can prove that it wasn't
+[01:17:21] them and didn't be pastor I don't know
+[01:17:24] that anybody knows yet what I've been
+[01:17:26] looking at you know it's [ __ ] crazy
+[01:17:29] though man when I was in Boulder there
+[01:17:31] was a giant fire that broke out that was
+[01:17:33] a fireman accident
+[01:17:34] started a fire yeah he had a fire pit in
+[01:17:37] his backyard and some [ __ ] embers
+[01:17:40] blew out of his fire pit and started a
+[01:17:42] giant fire and just burnt the massive
+[01:17:47] amounts of wild forest it's just gone
+[01:17:50] damn yeah a fireman imagine how painful
+[01:17:53] yeah he must have felt like [ __ ] it mean
+[01:17:56] anybody I mean just couldn't [ __ ]
+[01:17:59] imagine if it was your fault that one of
+[01:18:01] these things get started oh yeah the
+[01:18:03] guilt I would I wouldn't be sleeping for
+[01:18:06] weeks the craziest rate is Northern
+[01:18:08] California Northern California got it
+[01:18:10] wayward we got it bad down here worse
+[01:18:12] than I've ever seen but they got it way
+[01:18:14] worse in Northern California yeah
+[01:18:15] Northern California they lost like a
+[01:18:17] shitload of people died on the highway
+[01:18:19] is it burnt to death in their cars you
+[01:18:22] see those photos yes yeah [ __ ] man yeah
+[01:18:27] you know ends that a lot of this is
+[01:18:29] because of you mean there's a lot of
+[01:18:31] issues right there's the the dry you
+[01:18:34] know the fact that dry climate the fact
+[01:18:36] that you know there's a climate change
+[01:18:38] it's happening but also the fact that
+[01:18:40] there's no small fires like although
+[01:18:42] those dead trees are supposed to get
+[01:18:44] knocked down by small fires like
+[01:18:46] controlled fires yeah and those that
+[01:18:48] doesn't really happen anymore we don't
+[01:18:50] want small fires that can possibly get
+[01:18:52] out of hand and so you you have these
+[01:18:55] forests that are oftentimes filled with
+[01:18:57] dead trees right next to live trees and
+[01:19:00] a lot of dead trees all over the place
+[01:19:01] well so they're supposed to do it that's
+[01:19:03] like maintenance burning like the small
+[01:19:05] yeah before there's me I mean some
+[01:19:07] people advocate doing it for maintenance
+[01:19:09] but in nature that's like a natural
+[01:19:12] thing like the lightning would hit light
+[01:19:14] something [ __ ] on fire and the the live
+[01:19:16] trees would probably survive and a lot
+[01:19:18] of the dead ones would burn to the
+[01:19:19] ground and would actually regenerate the
+[01:19:21] forest yeah yeah I mean the crazy thing
+[01:19:24] is like you look how [ __ ] lush and
+[01:19:26] green it looks out here now yeah you
+[01:19:28] would never imagine that just a few
+[01:19:30] months ago this was a raging inferno it
+[01:19:34] actually is good for the ground yeah you
+[01:19:36] know and all that still smells like fire
+[01:19:38] to right now Rises yeah every time it
+[01:19:40] rains it's starting to get a little bit
+[01:19:42] better but does it freak you out when
+[01:19:44] you see fire now because of your
+[01:19:45] accident yeah it took a little while for
+[01:19:47] us to
+[01:19:48] pyro again remember it was like we just
+[01:19:51] got back together and like this really
+[01:19:56] really like killer like photographer had
+[01:19:59] this idea to do this photo shoot and
+[01:20:01] they wanted us holding like the watchman
+[01:20:04] called the thing like the flares yeah
+[01:20:05] that's it
+[01:20:07] he got me to hold it for a second I was
+[01:20:09] like ah bro I can't do this like wrong
+[01:20:12] photo shoot like I yeah I'm sorry you
+[01:20:14] know I know you have this vision but I
+[01:20:16] that's an insensitive vision yeah and
+[01:20:18] and I yeah oh yeah right I've been a
+[01:20:22] little bit more fitting but and then and
+[01:20:24] now we do pyro stuff on on stage and
+[01:20:27] production it doesn't really bug me but
+[01:20:29] I'm very cautious around the house like
+[01:20:31] you know my daughter she has like a
+[01:20:33] straight iron plugged in or for my son
+[01:20:36] whatever lights a candle like I'm so
+[01:20:39] crazy I'm not I mean yeah come on yeah a
+[01:20:42] little weird so I have to ask you does
+[01:20:45] Tom talk about UFOs all the time well
+[01:20:48] you know he's not in the band
+[01:20:49] yeah I know but you know always do that
+[01:20:51] he always did
+[01:20:53] we used to get loaded and just look out
+[01:20:55] the bus window yeah and I used to do it
+[01:20:57] with him as like I don't know it's kind
+[01:20:59] of a bonding experience it's like uh if
+[01:21:01] you wanted to show me bow and arrows
+[01:21:03] whatever we're on tour together if I
+[01:21:05] were in like you know check it out so
+[01:21:06] with Tom that was his thing like [ __ ]
+[01:21:09] let's get high and look for UFOs so he
+[01:21:11] would you know we just sit there and
+[01:21:13] like stare out the bus window look at
+[01:21:15] UFOs were like he would even go as far
+[01:21:17] as when we're on tour like let's go and
+[01:21:19] [ __ ] look for Bigfoot
+[01:21:21] whatever was you know and he would
+[01:21:24] assemble a crew and they would go do it
+[01:21:26] oh my god I never got me on one of those
+[01:21:28] trips cuz that was just to fairytale for
+[01:21:30] me but yeah but I would you know I'd do
+[01:21:32] that and he was always it's really not
+[01:21:35] something he just got into from the day
+[01:21:37] I [ __ ] met him I was obsessed with
+[01:21:40] UFOs and aliens and was always very
+[01:21:42] passionate about it to the point where
+[01:21:44] like I didn't know enough to to have any
+[01:21:49] kind of I guess like opinion on it I was
+[01:21:51] just very open and and you know just
+[01:21:53] took it all in yeah but nothing has
+[01:21:57] changed he's still the other day I
+[01:21:58] talked to him he's like I'm on the way
+[01:21:59] to the [ __ ] White House bro
+[01:22:01] and I don't ask any questions I drag as
+[01:22:04] you should be let's [ __ ] go what a
+[01:22:09] great response yeah good luck with that
+[01:22:12] yep wow that's crazy yeah he was a trip
+[01:22:16] man having a conversation with him was
+[01:22:18] very strange because I'm what part of me
+[01:22:20] was like Skyy putting me on like what is
+[01:22:22] happening dead-ass seemed like it and we
+[01:22:26] would look at these videos that were so
+[01:22:27] clearly horseshit and he would be like
+[01:22:30] amazing right and I'm like what like you
+[01:22:33] think that that's an actual UFO like
+[01:22:35] that is the fakest [ __ ] video I've
+[01:22:37] ever seen in my life yeah but he didn't
+[01:22:38] see that at all yeah in his mind he was
+[01:22:42] seeing a real alien spaceship even on
+[01:22:44] tour I'd be like he'd walk in my room
+[01:22:46] and be like what are you doing I'm like
+[01:22:48] I'll check this thing out I just made up
+[01:22:49] whatever playing drums he's like dude
+[01:22:51] [ __ ] whatever George Bush just did
+[01:22:53] you know he was just coming at me with
+[01:22:55] some like politics he's been watching
+[01:22:56] CNN or or yeah like he's just he's
+[01:22:59] always been obsessed with it so he's
+[01:23:02] obsessed with all sorts of like hidden
+[01:23:04] things like not just UFOs but Bigfoot
+[01:23:06] too and conspiracy theories politics
+[01:23:09] yeah everything very very passionate
+[01:23:12] about all those things conspiracy
+[01:23:14] theories and politics
+[01:23:15] it's interesting how those things go
+[01:23:17] together because people are always
+[01:23:20] wondering like who the [ __ ] is running
+[01:23:22] things what's really going on yeah
+[01:23:24] what's happening behind the scenes who's
+[01:23:27] pulling the strings
+[01:23:28] what does it all really mean yeah you
+[01:23:31] know yeah but the UFO thing is like boy
+[01:23:35] boy you gotta I mean I absolutely
+[01:23:39] believe there could be intelligent life
+[01:23:41] out there but I've seen a [ __ ] single
+[01:23:44] thing that makes me think that anybody's
+[01:23:46] got a picture same video yeah I feel
+[01:23:49] like it could it could be real I believe
+[01:23:51] but I war I'm not I can't [ __ ] I'm
+[01:23:54] not dedicating my life to search for it
+[01:23:56] you know yeah and I I give it to a man
+[01:23:59] to like honestly to walk away from your
+[01:24:01] [ __ ] very successful band to go do
+[01:24:03] that [ __ ] like I have nothing but
+[01:24:06] respect for his passion yeah but it's
+[01:24:08] like I couldn't do that that's insane
+[01:24:11] yeah it's like that just it really shows
+[01:24:13] like he's
+[01:24:14] you know he's very very passionate about
+[01:24:17] it I hope he saved up some money yeah me
+[01:24:19] too
+[01:24:20] you know Survivorman Les Stroud naw he's
+[01:24:24] you ever see that show
+[01:24:25] huh [ __ ] great show he would
+[01:24:28] Survivorman would go out into the woods
+[01:24:32] with a limited amount of things he would
+[01:24:33] say like okay I've got this bucket I've
+[01:24:35] got a [ __ ] pocket knife and I got a
+[01:24:37] ball a ball of yarn and I'm gonna
+[01:24:40] survive out here for seven days and he
+[01:24:43] films the whole thing and he'd be
+[01:24:45] filming himself like eating frogs and
+[01:24:47] catching a squirrel and finding edible
+[01:24:49] plants and just living out in the forest
+[01:24:51] and oftentimes going days and days
+[01:24:53] without food yeah and then he would have
+[01:24:55] like a point where he'd get rescued
+[01:24:56] seven days in there would be a spot
+[01:24:58] where they would meet him he had an
+[01:25:00] experience when he was in Alaska a long
+[01:25:04] time ago where he was camping and he
+[01:25:07] said he heard footsteps like big heavy
+[01:25:09] footsteps and he heard some sound that
+[01:25:11] sounded like a gorilla like whoa like
+[01:25:15] something like that yeah and and then it
+[01:25:18] ran off and to this day he's convinced
+[01:25:20] that that was a Bigfoot and so now he
+[01:25:23] has Survivorman Bigfoot and he goes out
+[01:25:27] into the woods and just looks for
+[01:25:30] evidence of Sasquatch well he needs to
+[01:25:34] eat easily ate up Tom Tom will pull up
+[01:25:36] he'll go with and he would love that I'm
+[01:25:38] sure he would [ __ ] yeah he's tried to
+[01:25:41] get me to go with them I'm like good
+[01:25:42] luck I did I did it one time I went
+[01:25:45] hunting for Bigfoot for a television
+[01:25:47] show I did for sci-fi called Joe Rogan
+[01:25:49] questions everything we went yeah
+[01:25:51] looking for Bigfoot and the more I
+[01:25:52] talked to these Bigfoot folks the more I
+[01:25:54] was convinced none of these
+[01:25:56] [ __ ] have ever seen Bigfoot
+[01:25:57] there was one lady that I talked to one
+[01:25:59] lady who just did not seem like a liar
+[01:26:02] and she was telling me that she saw
+[01:26:04] something in the woods and it was
+[01:26:06] standing up and it was tall like seven
+[01:26:08] eight feet tall and she's like why is
+[01:26:10] there a gorilla in the woods and then
+[01:26:13] she's like oh my god that's Bigfoot and
+[01:26:16] she said and it was the Pacific
+[01:26:17] Northwest like outside of Washington
+[01:26:20] State or in Washington State outside of
+[01:26:22] Seattle and the woods are so dense up
+[01:26:24] there that if anything goes 10 20 feet
+[01:26:27] it's gone
+[01:26:27] the problem with that is that there's
+[01:26:29] black bears up there in black bears
+[01:26:31] sometimes stand up on two feet they do
+[01:26:32] it all the time and if you saw a black
+[01:26:34] foot especially a black bear rather
+[01:26:36] especially from a distance you would
+[01:26:38] think it was a big gorilla if you're
+[01:26:40] standing up on two feet which they do do
+[01:26:41] especially when they're trying to see
+[01:26:42] something they'll stand up and they'll
+[01:26:44] even walk there's a lot of videos of
+[01:26:46] them walking on two feet am just on the
+[01:26:48] red legs never seen it nah that's crazy
+[01:26:51] I could see how a big four hundred
+[01:26:53] percent yeah so I think I don't think
+[01:26:55] that lady's a liar I just don't
+[01:26:58] she might I mean look it might be real
+[01:27:00] there might be a few of them left there
+[01:27:02] definitely was a thing called
+[01:27:04] Gigantopithecus that lived in Asia and
+[01:27:06] the thought is that it came across the
+[01:27:08] Bering Land Bridge the same time that
+[01:27:10] Native Americans came across from Asia
+[01:27:12] and that they came across and you know
+[01:27:15] because they lived in Asia and this this
+[01:27:16] Gigantopithecus
+[01:27:18] I think lived as recently I think as a
+[01:27:21] hundred thousand years ago I think the
+[01:27:23] the most recent fossils they have of it
+[01:27:26] which is you know human beings were
+[01:27:27] alive back then yeah and this thing was
+[01:27:30] sixth or an 8 to 10 foot tall bipedal
+[01:27:33] hominid so it was a huge huge ape-like
+[01:27:37] creature yeah check this out this is a
+[01:27:39] look at this bear
+[01:27:41] so the crazy [ __ ] ever bears walking on
+[01:27:44] two legs look at them like if you saw
+[01:27:48] that old early yeah oh my god it's a
+[01:27:52] [ __ ] pig foot especially if you
+[01:27:54] believe the hype and yeah you're
+[01:27:56] searching for a Bigfoot out there yes
+[01:27:57] yeah
+[01:27:58] or if you're on shrooms Yeah right I
+[01:28:00] mean if you're walking or if you're high
+[01:28:02] on mushrooms like oh my god Bigfoots
+[01:28:04] real look at that thing's like hey how
+[01:28:06] you doing oh he's got a hurt right foot
+[01:28:08] that's what that is
+[01:28:09] you see his right foot there's something
+[01:28:10] wrong with his right foot sometime yeah
+[01:28:12] it looks like he's missing his front paw
+[01:28:14] it says sometimes you know bears will
+[01:28:16] fight with each other and one bear bite
+[01:28:18] the other bears foot off or he could
+[01:28:21] have gotten shot or it could have broke
+[01:28:23] it off on something yeah
+[01:28:25] that's crazy yeah he's missing a foot so
+[01:28:28] he's he's walking around out there like
+[01:28:29] a gorilla but everybody else I was like
+[01:28:33] when I'm talking to them let they're
+[01:28:35] like living in make-believe world here's
+[01:28:36] another one walking around look at him
+[01:28:38] that is weird man those are
+[01:28:41] big-ass bears yeah big-ass bear still in
+[01:28:44] on two feet I mean look they look like
+[01:28:46] [ __ ] people man I think that is a big
+[01:28:50] reason why and they're there feeding
+[01:28:52] them that is so crazy
+[01:28:53] where is that that doesn't seem like
+[01:28:57] America is it South Korea yeah Wow oh so
+[01:29:02] that's it one of those wildlife parks
+[01:29:04] where the animals are all and you're in
+[01:29:06] a car yeah that's like fake wildlife I
+[01:29:09] mean wildlife but not really wild yeah
+[01:29:11] you ever see that video where the lady
+[01:29:13] was in China and they were in one of
+[01:29:14] those parks and she got in a fight with
+[01:29:16] her boyfriend just she got out of the
+[01:29:17] car and she got killed by a tiger no she
+[01:29:21] actually she didn't get killed her mom
+[01:29:22] got killed she's more [ __ ] up cuz her
+[01:29:25] mom came out to rescue her she got
+[01:29:26] snatched by the tiger and then her mom
+[01:29:28] what watch this [ __ ] this is crazy
+[01:29:30] on another day of it she's like [ __ ] you
+[01:29:32] I'm [ __ ] walking and they're like hey
+[01:29:34] listen [ __ ] get back in the [ __ ] car
+[01:29:36] there's Tigers out here just like none
+[01:29:37] of now [ __ ] you and [ __ ] him and [ __ ]
+[01:29:39] you and the tiger just grabs her
+[01:29:41] snatches around so the guy runs out and
+[01:29:43] then the mom runs out but apparently the
+[01:29:45] mom got killed - here comes the mom that
+[01:29:48] lady wound up dying yeah and there's a
+[01:29:50] park ranger like [ __ ] yeah when you get
+[01:29:54] snatched up by a 600-pound cat you hear
+[01:29:57] about that [ __ ] dude in Colorado
+[01:29:59] today
+[01:29:59] he killed a mountain lion with his bare
+[01:30:01] hands he smothered it to death yeah it
+[01:30:03] get jacked him while he was jogging
+[01:30:05] he was running on the trails the
+[01:30:07] mountain lion grabbed him from behind he
+[01:30:09] got a struggle this 80 pound cat and
+[01:30:11] wound up suffocating it I guess yeah
+[01:30:13] [ __ ] bad-ass jogger just yeah I want
+[01:30:16] to know what the [ __ ] a bar is net [ __ ]
+[01:30:19] oh [ __ ] yeah Erik Lewis or someone you
+[01:30:25] know like I can't picture anyone else
+[01:30:27] being able to do that maybe he's a
+[01:30:28] jujitsu guy yeah we see him I've seen
+[01:30:31] him when my kids were really young in
+[01:30:33] Calabasas where I live
+[01:30:35] I saw one like just pacing back and
+[01:30:37] forth in my back fence Jesus yeah
+[01:30:40] they're out here man yeah they're out
+[01:30:41] here when we see coyotes in Deer all the
+[01:30:43] time but mountain lions that's that's
+[01:30:45] next-level scary yeah a friend might
+[01:30:48] just send me a message this morning when
+[01:30:50] I was when I posted that thing on
+[01:30:52] Instagram about that guy that killed it
+[01:30:53] and he said he was
+[01:30:54] running on this fire road and he
+[01:30:57] realized he like felt weird and looked
+[01:31:01] over and 20 feet away from him was a big
+[01:31:04] cat right above him on this Ridge 20
+[01:31:07] feet so that's basically us to that wall
+[01:31:10] yeah big cat just looking and he said he
+[01:31:12] waved his arms to look bigger and a
+[01:31:14] thing just walked away
+[01:31:15] uh I carry a nice when I run I carry a
+[01:31:20] [ __ ] half face blades it's got a like
+[01:31:24] a loop you could stick your thumb into
+[01:31:26] it so it stays in your hand and and
+[01:31:29] people like why are you running with a
+[01:31:30] knife what the [ __ ] you doing like you
+[01:31:32] don't need it until you do yeah and when
+[01:31:35] you do you want to have it didn't
+[01:31:37] someone get attacked by a coyote in
+[01:31:39] Hidden Hills like running did they how
+[01:31:42] is your story about that but I mean I
+[01:31:44] ran in my neighborhood before and a two
+[01:31:47] coyotes ran right past me I mean the
+[01:31:49] group's yeah they usually don't mess
+[01:31:50] with like humans you know well we had a
+[01:31:53] problem with them killing chickens
+[01:31:54] because I have chickens in my yard yeah
+[01:31:56] I've lost a bunch of chickens too coyote
+[01:31:58] so they were they were on top of the
+[01:31:59] chicken coop pulling tiles off of it
+[01:32:01] they're creepy little [ __ ] man but
+[01:32:04] they're little you know these are like
+[01:32:05] 35 45 pounds they're not very big but
+[01:32:08] they're creepy there's something about
+[01:32:10] their little wolves and they're looking
+[01:32:12] at you and they're trying to figure out
+[01:32:13] a way like what can they eat what can't
+[01:32:14] they they're out there scraping scraping
+[01:32:17] and grinding there's sneaky like
+[01:32:19] gangster like I saw one of my friends a
+[01:32:22] dear friend of mine he lost both of his
+[01:32:23] dogs to coyotes and he had I think he
+[01:32:26] had like surveillance of it and one is
+[01:32:28] in the yard and he's playing dead and
+[01:32:30] then his a dogs approach what they think
+[01:32:33] is dead and then basically like his home
+[01:32:37] he comes out of nowhere and attacks and
+[01:32:39] they both and the one that's playing
+[01:32:41] dead attacks and both of his dogs were a
+[01:32:43] wrap how big were his dogs small I mean
+[01:32:46] there were smaller dogs but you know now
+[01:32:47] he has like big German Shepherds and
+[01:32:49] he's you know he's kind of like got
+[01:32:50] bigger dogs now but it was really sad
+[01:32:53] ma'am it is very danceable like very
+[01:32:56] very crazy
+[01:32:58] yeah they figure out some way to work
+[01:33:00] and cooperate together without
+[01:33:02] communicating it's very interesting yeah
+[01:33:04] like if it wasn't so sad that they're
+[01:33:06] killing someone's pet it's it's really
+[01:33:07] kind of fast
+[01:33:08] that they're so smart that they would
+[01:33:10] play dead there was a guy that used to
+[01:33:13] work at this pet store that I go to and
+[01:33:15] he also worked in a veterinary center
+[01:33:19] medical place and a pitbull came in big
+[01:33:23] one of those big Jack pitbulls just
+[01:33:25] covered in cuts it cuts all over its
+[01:33:27] body and the owner was you know they
+[01:33:30] asked you only like what the [ __ ]
+[01:33:31] happened was I don't know he goes I came
+[01:33:32] home he's covered in cuts I really have
+[01:33:35] no idea what happened to him so he
+[01:33:36] stitch the dog out but hundreds of
+[01:33:38] stitches all over the dog's body then he
+[01:33:40] takes a walk outside of his house and he
+[01:33:43] follows his dogs blood and he goes up
+[01:33:46] into the hills near his house and he
+[01:33:47] finds nine dead coyotes that pitbull was
+[01:33:52] yeah apparently he just tear and he said
+[01:33:56] it looked like Vietnam it looked like a
+[01:33:58] [ __ ] like Saving Private Ryan just
+[01:33:59] ripped apart
+[01:34:00] coyotes nine of them this [ __ ]
+[01:34:03] just went mauling yeah they must have
+[01:34:06] been so bummed out they're like this dog
+[01:34:08] yeah there's nine of us we're good what
+[01:34:10] good we got this guy yeah and then you
+[01:34:11] see this [ __ ] fire hydrant head yeah
+[01:34:15] that doesn't feel pain they've
+[01:34:18] engineered those things like there's
+[01:34:20] some pit bulls this is pit bull if you
+[01:34:23] go on Instagram I think it's I am The
+[01:34:26] Hulk that's that's the name of the pit
+[01:34:28] it's a 200-pound pit bull like they've
+[01:34:30] gotten them to 200 pounds now it's the
+[01:34:31] most preposterous thing you've ever seen
+[01:34:33] in your life it looks like like like
+[01:34:37] Brock Lesnar if it was a pit bull it's
+[01:34:40] like it doesn't even make any sense
+[01:34:41] you lookin like that a pit bull used to
+[01:34:43] be like a 35 pound dog these to be small
+[01:34:45] yeah look at that thing yeah they're
+[01:34:47] white in the ferry imagine if a coyote
+[01:34:50] saw that [ __ ] yeah those aren't anything
+[01:34:53] bull Mastiffs is [ __ ] scary too oh
+[01:34:58] yeah I had a master if he passed away
+[01:35:01] recently I was 13 years old and we had
+[01:35:04] to put him down and it was really sad he
+[01:35:06] was he was a great dog Mastiffs are so
+[01:35:10] sweet look look at the size of that
+[01:35:12] [ __ ] dog man
+[01:35:15] just yolk to just it's a crazy 200-pound
+[01:35:20] pitbull it's just so crazy that they
+[01:35:22] make him that big now like a hundred
+[01:35:25] pound pitbull used to be a bit I had a
+[01:35:26] 90 pound one it was a big dog it's like
+[01:35:30] wow that's a big pit bull and like has a
+[01:35:32] big pit bull this dogs a hundred and ten
+[01:35:33] pounds bigger if he doesn't even make
+[01:35:35] any sense
+[01:35:39] it's a [ __ ] tank
+[01:35:42] yeah but that's one of my favorite
+[01:35:44] coyote dead death stories this guy going
+[01:35:47] up into the hills and find all these
+[01:35:48] dead coyotes just laying in a pile they
+[01:35:51] try to ambush him what they would do
+[01:35:53] they try to get one to come out and try
+[01:35:54] to get chased and then the one would run
+[01:35:56] and then the other ones would jump it
+[01:35:58] they're like a game straight up that's
+[01:36:00] crazy that they're they think like that
+[01:36:03] though they're facts that they have
+[01:36:04] actually have strategies they're savages
+[01:36:07] yeah well that's like the downside of
+[01:36:10] living in the suburbs the upside is you
+[01:36:13] get a nice yard and get a little view
+[01:36:14] and yeah I love getting away from the
+[01:36:17] city here like you know it's like studio
+[01:36:20] or just chaos whatever just going home
+[01:36:22] and being home yeah meats nice Derick
+[01:36:25] eat do you keep a place up in Big Bear
+[01:36:26] anywhere I don't I don't I go up there I
+[01:36:29] don't really like traveling really numb
+[01:36:31] after my accident I [ __ ] hate
+[01:36:33] traveling Wow like I'll go on tour but I
+[01:36:36] won't even look in an itinerary before I
+[01:36:38] go on tour I just kind of like just tell
+[01:36:40] me where to go I'll be up I'll be where
+[01:36:43] I need to be but yeah like I don't want
+[01:36:45] to and I don't fly you know I haven't
+[01:36:47] flown since my accident oh wow so all
+[01:36:49] your touring you do is by bus yeah by
+[01:36:51] bus and then I'll take the Queen Mary to
+[01:36:53] do Europe but no way yeah do you need a
+[01:36:57] boat to Europe yeah measure of your boat
+[01:36:59] sunk you know on a [ __ ] float rafting
+[01:37:02] mother [ __ ] yeah trust me well you
+[01:37:06] know what I'd rather be on the [ __ ]
+[01:37:07] raft then [ __ ] plummeting into the
+[01:37:10] ocean at yeah 100 miles per hour or
+[01:37:12] whatever
+[01:37:12] yeah I feel yeah but yes I like tuna for
+[01:37:16] like like quick getaways like you know
+[01:37:18] just chill out with the family so if you
+[01:37:20] guys have a gig in New York City you
+[01:37:21] have to start your journey five days
+[01:37:23] early yeah Wow
+[01:37:26] it's cool the kids and I get to see a
+[01:37:27] lot of stuff we don't normally see yeah
+[01:37:29] but I gotta really think about it like
+[01:37:31] like that [ __ ] fire festival yeah if
+[01:37:35] they had booked us on and I was like I'm
+[01:37:38] so glad cuz I would have had a drive
+[01:37:40] five or six days you know to Florida to
+[01:37:43] Fort Lauderdale then get in a boat and
+[01:37:45] then you know get over to the Bahamas so
+[01:37:47] thank God man because I was I was
+[01:37:50] literally on my way there
+[01:37:51] Wow so when you do that do you actually
+[01:37:53] drive yourself do you have someone Drive
+[01:37:54] you know I'd be white knuckling driving
+[01:37:56] the tour bus have you driven a tour what
+[01:37:58] it's scary man why are you driving like
+[01:38:00] this right I've done it like what like
+[01:38:03] when I was 19 or like 20 when I was on a
+[01:38:05] tour the driver let me drive and it was
+[01:38:07] the scariest [ __ ] thing I was like
+[01:38:09] take the [ __ ] wheel man this is so
+[01:38:11] scary like a white knuckling like just
+[01:38:14] being in control being responsible over
+[01:38:17] that big of a bus and all of my homies
+[01:38:19] or you know all your friends are
+[01:38:21] sleeping in it oh so it's like oh gosh
+[01:38:23] man I give it bus drivers are that's a
+[01:38:26] hard [ __ ] job it's our money drive
+[01:38:28] for you know I think you know we usually
+[01:38:30] do eight to ten hour days a day yeah bus
+[01:38:32] it's a long time it is a long time so
+[01:38:35] it's quite a drive in and you know they
+[01:38:38] have to stay awake and maintain their
+[01:38:40] focus and yeah I don't know about you
+[01:38:41] but when I see those white lines that
+[01:38:44] there's something about that it's not
+[01:38:46] good for me I start non yeah it's like
+[01:38:48] hypnotizing yeah right it is hypnotized
+[01:38:51] yeah I could do like two or three hours
+[01:38:53] and I'm cool exactly you know San Diego
+[01:38:55] is about as far as I want to drive yeah
+[01:38:57] they're built different yeah and I know
+[01:38:59] [ __ ] you know they say it's way more
+[01:39:01] dangerous to be on the road in a bus or
+[01:39:03] in a car than being a plane but I don't
+[01:39:07] know one day I always say like my kids
+[01:39:08] want to fly one day maybe I'll be down
+[01:39:10] but the thought of me leaving to go play
+[01:39:14] some show or do something cool and
+[01:39:17] something happening while they're at
+[01:39:18] home like [ __ ] me up right I don't
+[01:39:21] really do I know what you mean I can
+[01:39:22] only imagine I mean I don't think
+[01:39:24] anybody's ever gonna be able to
+[01:39:25] understand what you've gone through with
+[01:39:27] that kind of an ordeal a plane crash
+[01:39:30] where your friends died and the pilots
+[01:39:32] are dead and and you managed to get out
+[01:39:34] alive but almost lost your foot and
+[01:39:37] burned half your body plus
+[01:39:38] yeah you know [ __ ] man it's crippling
+[01:39:41] but I try not to let it be too much of a
+[01:39:43] handicap you know by traveling but
+[01:39:46] seemed like you seem like you got to
+[01:39:47] work around ya and figured it out
+[01:39:49] yeah but Australia can go [ __ ] itself
+[01:39:50] huh I wish I could go I thought I loved
+[01:39:53] Australia I love Japan [ __ ] I love Japan
+[01:39:55] yeah you guys go there for UFC fights
+[01:39:58] yeah have been yeah I can love it did
+[01:40:00] you have seen in Tokyo once it was great
+[01:40:02] I honestly wanted to move there really
+[01:40:04] yeah I loved it so much David Lee Roth
+[01:40:07] moved there for a while yeah he moved
+[01:40:09] there to take sword-fighting classes
+[01:40:11] [ __ ] yeah
+[01:40:12] moved into this dog got an apartment he
+[01:40:15] is that you ever talked to him now he is
+[01:40:16] one of the trickiest [ __ ] guys I just
+[01:40:18] got a message really recently that he
+[01:40:20] wanted to talk to me and so they gave me
+[01:40:23] a phone number for him I sent him a text
+[01:40:24] message he's never heard back
+[01:40:25] it's like I might have to call him like
+[01:40:27] I don't I don't want to miss it out so
+[01:40:29] if David you listening I tried twice yes
+[01:40:32] but he said he wanted to get a hold of
+[01:40:33] me for something and they gave him a
+[01:40:35] number they gave me a number to get a
+[01:40:36] hold of him but he's one of the more
+[01:40:38] interesting people I've ever talked to
+[01:40:39] in my life he worked as an EMT for a
+[01:40:41] while when he just gotten out of Van
+[01:40:43] Halen really yes like an actual EMT like
+[01:40:47] helping people like in New York and
+[01:40:49] people like what are you [ __ ] David
+[01:40:51] Lee Roth and yeah can you forget we're
+[01:40:53] getting in the ambulance like he would
+[01:40:55] keep together they like strapping people
+[01:40:57] to a gurney when they're had accidents
+[01:40:59] and [ __ ] and [ __ ] date you imagine
+[01:41:01] you get in a car accident and [ __ ]
+[01:41:02] David Lee Roth is gonna help you you
+[01:41:04] like what what am I I must be dead yeah
+[01:41:07] this isn't real life Wow [ __ ] David
+[01:41:10] Lee Roth that's fine that's legendary I
+[01:41:14] love ya I love he's a trip yeah that'd
+[01:41:16] be a great interview move to Japan with
+[01:41:18] his dog just just hung out there I go
+[01:41:21] what are you doing he's like taking
+[01:41:22] kendo lessons it's taking sword fighting
+[01:41:24] lessons from a Japanese master whoa
+[01:41:27] so every day be ticklish taking [ __ ]
+[01:41:29] kendo sick he's that he's a real deal
+[01:41:33] man yeah he's a real deal like a real
+[01:41:36] eccentric but a really friendly really
+[01:41:38] interesting guy yeah what it's awesome
+[01:41:41] yeah I love when someone is like that
+[01:41:45] yeah you know like your friend that
+[01:41:47] hasn't talked for 22 years
+[01:41:48] I love [ __ ] like yeah you don't hear
+[01:41:50] about that
+[01:41:51] or someone that'll stop being in Van
+[01:41:55] Halen to go [ __ ] with swords
+[01:41:56] yeah yeah it goes [ __ ] without you to
+[01:42:01] think they're really bringing him to the
+[01:42:02] Pentagon and [ __ ] like that
+[01:42:04] I don't know cuz I said hey like I have
+[01:42:07] no clue and I had watched a little bit
+[01:42:09] of your podcast where you were like I
+[01:42:11] use let me a text message
+[01:42:13] why didn't you you know but I feel like
+[01:42:17] he's made himself readily available you
+[01:42:20] do that [ __ ] you know like right I don't
+[01:42:24] know it's a it's I sit and scratch my
+[01:42:27] head and go I don't know I don't know
+[01:42:28] either
+[01:42:29] I just [ __ ] yeah he's such a talented
+[01:42:31] talented dude - man he's like such a
+[01:42:33] good songwriter yeah he well he
+[01:42:36] certainly is certainly a very talented
+[01:42:38] guides it's just so interesting that
+[01:42:39] that's his main point of focus yeah I
+[01:42:41] would think that if aliens were real
+[01:42:43] Trump would have told us I really do
+[01:42:45] believe that yeah that guy's he's such a
+[01:42:48] [ __ ] loose cannon
+[01:42:49] he became the president like maybe they
+[01:42:51] can hit it from him or his [ __ ]
+[01:42:53] chaotic as [ __ ] is right now it was
+[01:42:55] something I don't know something with
+[01:42:56] slip you know i yeah I would think that
+[01:42:59] if they told him if they brought him
+[01:43:01] those are just two things I would want
+[01:43:03] to know who killed JFK those are two
+[01:43:06] things I'd want to know if I became the
+[01:43:07] president and our aliens real what do
+[01:43:09] you got [ __ ] yeah what do you
+[01:43:11] got I go to the top generals I bet look
+[01:43:13] I'm gonna defer to you guys I'm not a
+[01:43:15] military expert okay I mean I don't want
+[01:43:17] war but I want you guys to have support
+[01:43:20] I got full respect tell me about that
+[01:43:23] was it Trump borders establishment of
+[01:43:25] space force he did that that's right the
+[01:43:27] space force man but that's because
+[01:43:29] there's that's actually a military
+[01:43:32] strategy because they're concerned that
+[01:43:33] as technology improves Russians are
+[01:43:36] going to be in space and we're gonna be
+[01:43:38] in space or or fight off two aliens
+[01:43:41] Yeah right like Will Smith type [ __ ]
+[01:43:43] yeah look at him yeah Mike Pence is
+[01:43:46] behind I'm going Jesus oh yeah yeah I
+[01:43:51] don't know man but if I became president
+[01:43:54] I never will but if I did those are the
+[01:43:56] two things that I'd want to know who
+[01:43:57] killed JFK and where the [ __ ] aliens
+[01:43:59] do you think they know do you think they
+[01:44:02] know anything more than regular people
+[01:44:03] because you got to feel like they come
+[01:44:05] in
+[01:44:05] every four years someone would open
+[01:44:06] their mouth somebody knows somebody
+[01:44:10] knows come on what did he give on must
+[01:44:11] say he's an alien yeah bro he's not
+[01:44:15] gonna rat on his friends right if he
+[01:44:16] drive that car I'll give you the Cape
+[01:44:18] just take it for a tour just take it for
+[01:44:20] a spin out of here I will that [ __ ]
+[01:44:22] test will make you believe in aliens it
+[01:44:24] doesn't even make sense
+[01:44:25] it does not make sense I feel like I'm
+[01:44:29] driving a computer when I'm in a Tesla
+[01:44:31] it's no saint yeah it's like every car
+[01:44:33] other than that seems stupid so this is
+[01:44:36] love first when you've had yes Wow and
+[01:44:38] you're just completely in love with it
+[01:44:39] sold Wow sold I drove one there was a
+[01:44:43] rental car company that was sponsoring
+[01:44:46] the podcast and it was like like uber
+[01:44:48] for rental cars they would drop off a
+[01:44:50] rental car and they would remember the
+[01:44:52] name of that company I don't know if
+[01:44:54] they're around him yeah anyway um I said
+[01:44:57] yeah I won't try a Tesla and I drove it
+[01:44:59] I was I was kind of interesting but this
+[01:45:01] was years ago it may be five years ago
+[01:45:03] was that four years ago five years ago
+[01:45:05] it wasn't as impressive but now I got
+[01:45:09] the Model S P 100 D this is what he told
+[01:45:13] me to get so I said alright I'll get it
+[01:45:14] I drove that thing the moment I drove it
+[01:45:17] the very first the first couple of feet
+[01:45:20] like what is happening here like why is
+[01:45:22] this going so fast it doesn't make sense
+[01:45:24] it's effortless like effortless like
+[01:45:27] every other car on that road has to
+[01:45:29] accelerate it's like man this guy's just
+[01:45:33] its instantaneously going 60 miles an
+[01:45:36] hour I mean it just feels like it's it's
+[01:45:38] happening in like blink blink 60 yeah
+[01:45:41] and [ __ ] smooth and just you can't
+[01:45:43] hear anything yeah you don't hear
+[01:45:45] anything it handles great it's quiet as
+[01:45:47] [ __ ] it's comfortable
+[01:45:49] yeah I'm [ __ ] cuz I'm no dude I'm a
+[01:45:52] gearhead like you I know you saw that
+[01:45:54] blazer yeah do that Stoke yeah I tried
+[01:45:57] building like my icon version of a
+[01:45:59] blazer you know who built that for you
+[01:46:01] his name was del mo he was over here in
+[01:46:04] the valley so he did the LS swap and
+[01:46:06] then I had another buddy of mine paint
+[01:46:09] it and then I've just kind of like did
+[01:46:11] ground up like suspension but I feel
+[01:46:13] like I should have replaced the chassis
+[01:46:15] and done everything like that I've known
+[01:46:16] wanted it to be like a true icon but it
+[01:46:18] bad [ __ ] truck don't look in truck
+[01:46:21] there it is that is so sick it's so few
+[01:46:23] no icons done some Blazers yeah someone
+[01:46:26] they did afterwards yeah oh so you have
+[01:46:28] it it's a full convertible no hardtop
+[01:46:30] god damn that looks good dude yeah I put
+[01:46:32] a soft top on it like a bikini top
+[01:46:33] mm-hmm
+[01:46:34] but summertime I just take it all off
+[01:46:36] but I rolled a rollcage too sick I love
+[01:46:39] it I love the lowered ones too like the
+[01:46:42] slammed ones they're so nice yeah thanks
+[01:46:44] though that's so nasty man is that the
+[01:46:47] color you have like a matte yeah it's a
+[01:46:49] cool matte like charcoal Mercedes gray
+[01:46:51] yeah that looks good yeah it almost pops
+[01:46:54] wheelies it's so [ __ ] strong he's so
+[01:46:56] much horsepower which engine they put in
+[01:46:58] there an ls3 okay what is it how many
+[01:47:01] horsepower uh I think I'm at like 700
+[01:47:05] that's so ridiculous besides that you
+[01:47:08] know I had like I like 16 old schools
+[01:47:10] I've actually do you really I actually
+[01:47:11] fell out of love with them it's kind of
+[01:47:13] weird or I think I've spent like my time
+[01:47:15] with them and I'm ready to like separate
+[01:47:18] from them and move on and maybe like get
+[01:47:20] other stuff or like I don't know I feel
+[01:47:22] like it was a moment in time though I
+[01:47:23] was like kind of like hood rich in a
+[01:47:26] sense where I'm putting all my money
+[01:47:27] into cars right like before I ever
+[01:47:30] bought a house I had like four caddies
+[01:47:32] you know and I was living in like a
+[01:47:34] two-story a two-bedroom house you know
+[01:47:36] with a bunch of friends but did that old
+[01:47:39] red one behind you was dope what is that
+[01:47:41] I still have that 53 Chevy truck oh that
+[01:47:44] looks cool icon does some of those - you
+[01:47:47] ever see the Thrissur he's got one for
+[01:47:51] sale right now I saw it yeah somebody
+[01:47:53] had one built and then just never drove
+[01:47:56] it and yeah and he's selling it is nasty
+[01:47:59] did I go over there and window-shop all
+[01:48:01] have you got him yes super cool he's
+[01:48:03] very CRO he drove me there that one's
+[01:48:06] available right now look at that [ __ ]
+[01:48:07] thing he drove me in one of those and
+[01:48:09] was like hitting corners at 70 like I
+[01:48:12] [ __ ] almost lost my breath that was
+[01:48:14] like this [ __ ] is crazy but they
+[01:48:17] really do perform there oh yeah [ __ ]
+[01:48:19] cars even my Bronco even though it's so
+[01:48:21] high yeah so high off the ground you
+[01:48:23] would think that thing handles like [ __ ]
+[01:48:24] it handles really good for for something
+[01:48:26] like that is it like stock how it comes
+[01:48:29] from icon like that same height or did
+[01:48:31] you do anything
+[01:48:31] yeah yeah he just does them all that way
+[01:48:34] yeah and I was originally gonna get an F
+[01:48:37] J made from him and I went there I saw
+[01:48:39] the Bronco in person with that matte
+[01:48:41] silver and I was like holy [ __ ] you did
+[01:48:44] I go scrap the [ __ ] F J we need to
+[01:48:47] get this going so Jude did you do the
+[01:48:49] whole build-out like you how long did it
+[01:48:51] take
+[01:48:52] well it's honorable you're on a waiting
+[01:48:54] list for a long time and then I think
+[01:48:55] the bill took close to a year it's like
+[01:48:58] close to a year my agent
+[01:49:01] yeah me too but the key is like have it
+[01:49:03] in the then just forget about it yeah
+[01:49:05] and then time goes by do you drive it a
+[01:49:06] lot all the time I Drive to the comic
+[01:49:08] store like two or three nights a week
+[01:49:10] but since I got the Tesla I'm telling
+[01:49:12] you man really ruined me it's ruined me
+[01:49:15] I'm a gearhead yeah I like old-school
+[01:49:17] cars I have a 65 Corvette with an ls1
+[01:49:20] supercharged drive that all the time
+[01:49:22] side pipe you know that yeah
+[01:49:24] silver shape I love it but it seems so
+[01:49:27] dumb
+[01:49:27] it seems so dumb wants to drive a Tesla
+[01:49:29] Wow it's effortless dude it just goes
+[01:49:32] yeah it's like you're on fast-forward I
+[01:49:35] need to check it out everybody else is
+[01:49:37] living in the past
+[01:49:38] yeah like maybe last year I used to have
+[01:49:40] a the wraith like the roll oh that's a
+[01:49:44] sick car a bad car yes you have the
+[01:49:46] ceiling with all the lights yeah ha ha
+[01:49:47] ha space he was so sick but my buddy my
+[01:49:51] buddy John said hey let's let's swap
+[01:49:52] cars wherever we were driving so I did
+[01:49:55] and I was tricked I was really impressed
+[01:49:58] it was it [ __ ] it was really really
+[01:50:00] fast which one did he have did he have
+[01:50:01] the 100 d I imagine it's the one before
+[01:50:04] the one you're talking about because it
+[01:50:05] was a couple years ago those were fast
+[01:50:07] yeah but it was still impressive you
+[01:50:09] know yeah those were fast they're still
+[01:50:11] fast but this one is [ __ ] stupid yeah
+[01:50:14] it doesn't make sense it's like you it's
+[01:50:16] like you're defying what you think a
+[01:50:19] thing can do and it has that big [ __ ]
+[01:50:21] screen yeah
+[01:50:23] everything information yeah yeah they're
+[01:50:25] dope he's a he's definitely a legend man
+[01:50:28] you know Musk he's got his blowtorch to
+[01:50:31] like he's [ __ ] yeah he lit that
+[01:50:35] [ __ ] thing up in the hallway out here
+[01:50:37] no yeah thought I was gonna burn the
+[01:50:38] building I haven't even lit mine I'm so
+[01:50:40] afraid my son's like of course an animal
+[01:50:42] I don't want him to know how to turn it
+[01:50:43] on yeah yeah
+[01:50:45] he gave it to me and put the [ __ ]
+[01:50:47] fuel in it and everything I was like all
+[01:50:48] right thanks crazy like he comes bearing
+[01:50:52] gifts
+[01:50:52] yeah how many people give you a glow gun
+[01:50:54] blowtorch hell you just call it torch
+[01:50:57] gun blowing which called it's not a
+[01:50:59] blowtorch right no what does he call
+[01:51:01] it's not a it's not a bullet or yeah not
+[01:51:04] a blowtorch that believe so yeah yeah
+[01:51:08] whatever it is this is a crazy picture
+[01:51:11] online that we put up of him shooting
+[01:51:13] that [ __ ] thing out in the hallway
+[01:51:16] and you're like you can't tell him no
+[01:51:17] you know like no one tells him no he's
+[01:51:20] got security around him and all these
+[01:51:21] [ __ ] all these mercenaries with guns
+[01:51:23] no one saying it he rolls hard dude he's
+[01:51:27] Elon Musk
+[01:51:28] yeah it's worth billions everywhere he
+[01:51:30] goes I mean he's gotta have security
+[01:51:32] everywhere guys come before him and
+[01:51:33] chase everything out yeah look at him
+[01:51:38] what an iconic photo what the freak
+[01:51:42] party signed above his head it's almost
+[01:51:43] like we planned it and Steven Tyler
+[01:51:46] that's Steven Tyler's mugshot in the
+[01:51:47] background crazy man
+[01:51:50] he said takes from your guys interview
+[01:51:52] to where he's just like [ __ ] stoned be
+[01:51:54] honest not so good I don't think he got
+[01:51:57] stoned I don't think he really inhaled
+[01:51:59] he took like a tiny puff I think he
+[01:52:02] puffed it like a cigar I don't think I
+[01:52:04] really smokes we didn't inhale
+[01:52:06] he drinks we drank that's what was
+[01:52:08] interesting about that the the blowback
+[01:52:11] or the backlash is that we drank for two
+[01:52:13] hours before we even busted out the weed
+[01:52:15] what the weed was like what are they
+[01:52:17] doing the guy takes one hit of weed what
+[01:52:20] are they doing
+[01:52:21] yeah and then it went crazy and stock
+[01:52:24] plummeted 6% and but it went back up to
+[01:52:27] 9% you smoked before you drink right I
+[01:52:30] don't know I think you get really [ __ ]
+[01:52:32] up if you don't smoke a lot and you
+[01:52:34] smoke after you've been drinking really
+[01:52:36] it's a wrap yeah oh yeah
+[01:52:37] I don't know he never seen I don't think
+[01:52:40] it affected him he's like well he's so
+[01:52:42] his brain is wired so different you know
+[01:52:46] what his brain is like it's like you
+[01:52:48] ever see like okay no disrespect to Pete
+[01:52:51] Holmes but you know Pete Holmes the
+[01:52:52] comedian like look at his body and then
+[01:52:54] look at Usain Bolt's that's how I feel
+[01:52:57] like like the way if they had a race
+[01:52:59] that's I feel like with my brain in the
+[01:53:02] room with Ellen's brain it was like oh
+[01:53:03] these are barely the same thing you keep
+[01:53:07] up man like you you've had some crazy
+[01:53:09] guests that are talking about atoms and
+[01:53:11] [ __ ] the universe and whatever else
+[01:53:13] and you're always like you you keep up
+[01:53:16] with everybody it's an illusion I don't
+[01:53:18] know just memorize things yeah I don't
+[01:53:20] know what the [ __ ] I'm talking about
+[01:53:21] Deena they understand the actual
+[01:53:22] concepts yeah you know I might be able
+[01:53:24] to repeat things that I've learned in
+[01:53:26] red but I don't know what the [ __ ] I'm
+[01:53:27] really talking about they know what the
+[01:53:29] [ __ ] they're like you know I'm saying
+[01:53:30] it's like if someone never did jujitsu
+[01:53:32] before and they want to talk about
+[01:53:33] choking someone out in a triangle and I
+[01:53:36] hear them say it I'm like okay yeah
+[01:53:38] that's how you do it that's how you do
+[01:53:39] it but they don't really know how to do
+[01:53:41] it you know I'm saying yeah but then if
+[01:53:43] you talk to hoist Gracie and he tells
+[01:53:45] you how to choke someone that was trying
+[01:53:46] to like this [ __ ] did it he
+[01:53:48] knows how to do it he does it all the
+[01:53:50] time
+[01:53:50] it's a different conversation you know
+[01:53:53] so that's the difference like me I'm
+[01:53:54] like a spectator talking to these
+[01:53:56] geniuses but I just trying to pull
+[01:53:59] information out of them I'm just trying
+[01:54:00] to get them to talk you know yeah I just
+[01:54:03] try to know a little bit about what
+[01:54:05] they're talking about the guys that were
+[01:54:07] on I don't know what was it last week
+[01:54:09] the guys that were talking about like
+[01:54:10] longevity like living yeah yeah David
+[01:54:12] Sinclair yeah he was that was pretty
+[01:54:14] crazy
+[01:54:15] fascinating whereas fascinating yeah
+[01:54:18] this I'm glad there's people like that
+[01:54:19] out there I think within the next 15 to
+[01:54:21] 20 years people are gonna start going
+[01:54:23] back in aging like legitimately yeah
+[01:54:25] they're gonna be able to not just slow
+[01:54:28] down aging but we're gonna see like
+[01:54:29] 60-year old ladies or hot as [ __ ] yeah
+[01:54:33] we're gonna see 60-year old ladies a
+[01:54:34] little 532 I really believe that yeah I
+[01:54:37] do too coming around the corner
+[01:54:38] especially like I was talking about that
+[01:54:40] diabetic medicine that he takes like
+[01:54:42] metformin
+[01:54:42] yeah yeah but apparently that stuff has
+[01:54:45] negative impacts on athletic performance
+[01:54:48] it's one of the things that I was
+[01:54:49] curious about when when he discussed it
+[01:54:51] and dr. Rhonda Patrick sent me something
+[01:54:53] on it and Ben Greenfield actually
+[01:54:55] brought it up on the podcast we did a
+[01:54:56] couple days afterwards yeah it's I don't
+[01:55:00] think it's it's probably good for
+[01:55:01] longevity but not good for athletic
+[01:55:03] performance which is uh I'm not willing
+[01:55:05] to make that sacrifice
+[01:55:06] yeah and he's probably not really
+[01:55:07] concerned with it performance no no he
+[01:55:10] barely worked out and he wasn't into
+[01:55:11] working out hard either
+[01:55:12] he's like his his deals like just
+[01:55:15] maintain a little bit of exercise just
+[01:55:17] to kind of keep the blood moving but a
+[01:55:19] lot of those guys that are these super
+[01:55:23] genius sort of longevity experts they're
+[01:55:27] just interested in how you can slow the
+[01:55:32] clock down as much as possible and then
+[01:55:34] there's other people like Ben Greenfield
+[01:55:35] or like Rhonda Patrick they're more
+[01:55:39] interested in performance like what is
+[01:55:42] what's the best thing for you in terms
+[01:55:44] of for your mental performance physical
+[01:55:46] performance I'm more in line with that
+[01:55:48] but I'm but I'm also I want to know what
+[01:55:51] these guys are working on yeah like the
+[01:55:53] David's and Claire's of the world
+[01:55:55] because he's at the top of the you know
+[01:55:56] the tip of the spear when it comes to
+[01:55:58] longevity and and gene-editing and you
+[01:56:01] know yeah that what they're talking
+[01:56:02] about is being able to inject certain
+[01:56:05] what it was like certain genes or
+[01:56:08] bacteria that carried genes it's gonna
+[01:56:09] fix eyesight yeah crazy like people that
+[01:56:14] are blind are gonna be able to see again
+[01:56:15] like yeah they're gonna be able to do
+[01:56:18] some mad mad [ __ ] as long as human
+[01:56:21] beings don't we don't figure out I mean
+[01:56:24] we don't nuke ourselves or [ __ ] the
+[01:56:27] world to a point where you know
+[01:56:28] scientific research halts if these guys
+[01:56:30] can keep going if we can make it to the
+[01:56:33] next 50 years people are probably gonna
+[01:56:35] live to be 300 years old yeah nuts
+[01:56:39] mascone I love it
+[01:56:41] how [ __ ] smart people gonna be if
+[01:56:42] they're 300 I mean think about how smart
+[01:56:44] you are compared to when you were 20
+[01:56:45] yeah I was a dummy
+[01:56:49] I'm so dumb I'm amazed I'm still here
+[01:56:51] yeah like I stop and think about how I
+[01:56:53] used to drive oh oh oh
+[01:56:58] now you you have old schools do you have
+[01:57:01] hot rods you have any hot rods nah
+[01:57:03] pretty much like slow and though like
+[01:57:05] old schools
+[01:57:06] those are safer he had a couple impalas
+[01:57:08] I just got rid of two of my impalas and
+[01:57:11] I have like a 53 caddy I still have I
+[01:57:14] have a 64 60 53 truck and a 41 caddy mmm
+[01:57:22] 41 cash yeah it's nice man
+[01:57:25] [ __ ] nice but it's like a 3-speed you
+[01:57:27] know what I mean like it's like it's you
+[01:57:29] know no holds no more steering it's like
+[01:57:32] it's like yeah you gotta know how to
+[01:57:33] drive so yeah I still have a couple that
+[01:57:36] I'm holding on to but I don't know or
+[01:57:38] steering the steering must be Giants
+[01:57:40] gigantic it's so sketchy to drive but
+[01:57:43] yeah I'm gonna bring like I'm gonna
+[01:57:45] bring a couple out I have a I have a
+[01:57:47] festival that happens in March called
+[01:57:49] music that's like tattoos music and cars
+[01:57:51] oh well I bring a couple of them out
+[01:57:53] there where's that a Orange County
+[01:57:56] Fairgrounds oh all right yeah nice nice
+[01:57:59] yeah so but yeah but I'm slowly I really
+[01:58:02] just I don't know I want a simpler life
+[01:58:03] man I want to be able to get in a car
+[01:58:05] and not worry about if it [ __ ] breaks
+[01:58:07] down and I can get to point A to point B
+[01:58:08] yeah without busy I am I don't know do I
+[01:58:11] stay the [ __ ] away from that Tesla yeah
+[01:58:13] yeah it'll ruin you oh yeah there she is
+[01:58:15] that's yours wow that's beautiful yeah
+[01:58:18] what a car what I mean what out like a
+[01:58:21] not just a car but a window into time
+[01:58:25] yeah that's history I mean back in 1941
+[01:58:28] that's what people drove man that was
+[01:58:31] the [ __ ] back then people tooling around
+[01:58:33] Manhattan in one of those yeah I love
+[01:58:35] seeing those you know the movies that
+[01:58:36] take place during those time areas and
+[01:58:38] they find all those classics so cool you
+[01:58:41] know it was great the more recent
+[01:58:43] version of The Great Gatsby with
+[01:58:45] Leonardo DiCaprio when they drove those
+[01:58:46] cars but it was a weird movie because
+[01:58:49] they made those cars almost like modern
+[01:58:52] oh very strange
+[01:58:53] that's how Romeo and Juliet was to the
+[01:58:55] one with um the one with Leonardo and
+[01:58:57] you know I'm talking about did you
+[01:58:58] notice that all the guns in there were
+[01:59:00] super ill yeah yeah yeah cars yeah yeah
+[01:59:03] it's like sake
+[01:59:04] the futuristic yeah some weird
+[01:59:06] interpretation yeah but still I'm
+[01:59:08] period-correct right yeah so that's time
+[01:59:11] period correct but when he drove that
+[01:59:13] car it drove like no [ __ ] car yeah
+[01:59:15] like see if you find a scene where he
+[01:59:19] actually drove the car because it
+[01:59:21] sounded like it was supercharged and
+[01:59:23] it's flying and it's handling well but
+[01:59:25] it's all like cartoonish almost like
+[01:59:28] everything the scenes were like when
+[01:59:30] these they're driving these cars they're
+[01:59:32] nothing like those cars were back then
+[01:59:34] oh yeah because they don't move like
+[01:59:36] that no less human Road
+[01:59:38] unless you do like a LS swapping you
+[01:59:40] have everything like when they're on the
+[01:59:42] road like these [ __ ] cars didn't
+[01:59:43] drive like that man yeah they didn't
+[01:59:45] they have skinny ass [ __ ] tires yeah
+[01:59:49] they barely could break you hit the
+[01:59:51] brakes it took forever to slow down
+[01:59:53] that's a great movie though yeah yeah
+[01:59:58] see they're all going sideways around
+[01:59:59] corners and [ __ ] nobody did that back
+[02:00:01] then it was weird it's weird how they do
+[02:00:04] that with movies where they they have
+[02:00:06] this like they're having a race yeah
+[02:00:08] reason I mean with that electric car
+[02:00:11] outside will blow by these [ __ ]
+[02:00:16] the problem with those those Tesla's is
+[02:00:19] that once you get in one other cars just
+[02:00:22] seem kind of dumb they seem kind of old
+[02:00:25] oh I bet feel like it's you're stepping
+[02:00:28] into the future we have those anything
+[02:00:30] else wouldn't seem even up to date you
+[02:00:33] know but there's something about cars
+[02:00:35] like you're 41 Cadillac that have a fame
+[02:00:37] - um yeah that you're never gonna get
+[02:00:40] from a new car yeah you know what's cool
+[02:00:41] about those is like when you're in those
+[02:00:44] you're not concerned with whatever's on
+[02:00:46] the radio or talking on the phone or I
+[02:00:48] don't know you're into just like your
+[02:00:50] content we're just hearing the car yeah
+[02:00:52] driving you know driving is fun yeah
+[02:00:55] whereas like if you're just in a 2019
+[02:00:59] Chevy truck you're not gonna feel like
+[02:01:01] that you know but it would take it that
+[02:01:02] far back just a smell of them everything
+[02:01:05] it's a it's a it's a vibe and it's just
+[02:01:07] I don't know it's you can't compare it
+[02:01:08] to anything yeah when I bought my 65
+[02:01:10] Corvette the first thing I do is pull
+[02:01:12] the radio out I'll say get that out of
+[02:01:13] here I don't want to have that radio
+[02:01:15] unnecessarily yeah yeah only have those
+[02:01:17] side pipes and the wind yeah but it's
+[02:01:22] it's gonna be a thing of the past man
+[02:01:24] I've really firmly believed that now
+[02:01:26] after driving this car I think you know
+[02:01:28] 50 years from now those things are gonna
+[02:01:29] be it's gonna be like seeing some guy
+[02:01:31] drive by on a Model T yeah engines are
+[02:01:34] gonna be a thing of the past it's
+[02:01:35] probably better for the environment
+[02:01:36] anyway overall
+[02:01:40] anyway I think that's it let's wrap this
+[02:01:43] up nope dude thank you so much I was
+[02:01:45] really glad we got together man it was
+[02:01:48] very cool talking to you likewise um
+[02:01:50] social media you're
+[02:01:52] Instagram is just Travis Barker Barker
+[02:01:54] and use Twitter as well or just yes
+[02:01:58] Barker beautiful thank you brother
+[02:02:07] [Music]
