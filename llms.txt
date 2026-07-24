@@ -1,0 +1,45 @@
+# Joe Rogan Experience Transcripts
+
+> Timestamped transcripts of 1,940 Joe Rogan Experience podcast episodes in Markdown format.
+
+This repository contains machine-generated transcripts (from YouTube auto-captions) of the Joe Rogan Experience podcast. Each episode is a single Markdown file with timestamped caption lines. The transcripts cover the main show, MMA shows, Fight Companions, and special episodes.
+
+## Repository structure
+
+- [README](https://github.com/RohitWaghire/Joe-Rogan-Experience-Transcripts/blob/main/README.md): Overview, file format, usage examples, and disclaimer.
+- [LICENSE](https://github.com/RohitWaghire/Joe-Rogan-Experience-Transcripts/blob/main/LICENSE): MIT license (applies to repo structure, not episode content).
+- [Transcripts/](https://github.com/RohitWaghire/Joe-Rogan-Experience-Transcripts/tree/main/Transcripts): All 1,940 episode transcript files.
+
+## Transcript file format
+
+Each `.md` file follows this structure:
+
+```
+# Joe Rogan Experience #<number> - <guest>
+# https://www.youtube.com/watch?v=<video_id>
+# video_id: <video_id>
+
+[MM:SS] caption text
+[MM:SS] caption text
+...
+```
+
+## File naming convention
+
+```
+Joe Rogan Experience #<episode> - <guest> [<YouTube video ID>].md
+```
+
+Variations include `JRE MMA Show #<n>`, `JRE Fight Companion`, and a few special episodes.
+
+## Key details
+
+- **Source**: YouTube auto-generated captions
+- **Format**: Markdown with `[MM:SS]` timestamps
+- **Limitations**: No speaker labels, occasional transcription errors typical of auto-captions
+- **Episode range**: #1 through recent episodes, plus MMA shows and Fight Companions
+- **License**: MIT for repo structure; episode content belongs to Joe Rogan / JRE
+
+## Optional
+
+- [GitHub repository](https://github.com/RohitWaghire/Joe-Rogan-Experience-Transcripts)
